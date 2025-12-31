@@ -1,4 +1,4 @@
-### The First Pillar: Relationship
+## The First Pillar: Relationship
 
 The First Pillar of the Mark of God is a genuine, intimate relationship with Him—knowing Him, not just knowing about Him.
 

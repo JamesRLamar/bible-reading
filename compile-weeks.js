@@ -90,16 +90,19 @@ const weekOrder = buildWeekOrder();
 // Compile all weeks into one document
 const compiledContent = weekOrder.map((filename, index) => {
   const filePath = path.join(weeksDir, filename + '.md');
-  const content = fs.readFileSync(filePath, 'utf-8').trim();
+  let content = fs.readFileSync(filePath, 'utf-8').trim();
   
   // Calculate the date for this week
   const startDate = new Date(config.startDate);
   const weekDate = new Date(startDate.getTime() + (index * 7 * 24 * 60 * 60 * 1000));
   const dateStr = weekDate.toLocaleDateString('en-US', { month: 'short', day: 'numeric' });
   
-  // Add date comment to help track calendar alignment
-  return `<!-- Week of ${dateStr} -->\n${content}`;
-}).join('\n\n---\n\n');
+  // Insert the date into the week heading (## Title -> ## Title (Jan 4))
+  // Match the first ## heading and append the date
+  content = content.replace(/^(## .+?)(\s*)$/m, `$1 (${dateStr})$2`);
+  
+  return content;
+}).join('\n\n');
 
 // Add header with config info
 const header = `<!-- Bible Reading Plan - Generated for ${config.startDate.slice(0, 4)} -->

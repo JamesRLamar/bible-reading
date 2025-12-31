@@ -1,4 +1,4 @@
-### The Two Pillars: Relationship and Righteousness
+## The Two Pillars: Relationship and Righteousness
 
 The Mark of God stands on two unshakable pillars: a real relationship with God and a life of obedience to His commands.
 

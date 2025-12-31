@@ -5,7 +5,7 @@
 Each week file should follow this structure:
 
 ### File Header
-- Start with `### [Week Theme Title]` as the main heading
+- Start with `## [Week Theme Title]` as the main heading
 - Follow with a short sentence encapsulating the week's overarching theme
 
 ### Daily Entries Format

@@ -1,4 +1,4 @@
-### The Mark of God
+## The Mark of God
 
 Throughout Scripture, God marks His people with an invisible sign of His covenant belonging—from Passover blood to the seal of His Spirit.
 

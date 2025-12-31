@@ -1,4 +1,4 @@
-### The Name of the Lord
+## The Name of the Lord
 
 God reveals Himself through His Name, Yahweh—it carries divine power, protection, and presence for those who call upon it.
 

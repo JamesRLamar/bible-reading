@@ -1,4 +1,4 @@
-### The Second Pillar: Righteousness
+## The Second Pillar: Righteousness
 
 The Second Pillar of the Mark of God is the evidence of living faith—a life of obedience to His commands.
 
