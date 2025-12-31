@@ -104,12 +104,8 @@ const compiledContent = weekOrder.map((filename, index) => {
   return content;
 }).join('\n\n');
 
-// Add header with config info
-const header = `<!-- Bible Reading Plan - Generated for ${config.startDate.slice(0, 4)} -->
-<!-- Start Date: ${config.startDate} -->
-<!-- Regenerate with: node compile-weeks.js -->
-
-`;
+// Add header with config info (as a comment at the top)
+const header = `<!-- Bible Reading Plan ${config.startDate.slice(0, 4)} | Start: ${config.startDate} | Regenerate: node compile-weeks.js -->\n\n`;
 
 // Write the compiled document
 fs.writeFileSync(outputFile, header + compiledContent + '\n');
