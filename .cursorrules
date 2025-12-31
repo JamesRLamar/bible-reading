@@ -1,0 +1,184 @@
+# Bible Reading Plan - Cursor Rules
+
+## Week File Format Requirements
+
+Each week file should follow this structure:
+
+### File Header
+- Start with `### [Week Theme Title]` as the main heading
+- Follow with a short sentence encapsulating the week's overarching theme
+
+### Daily Entries Format
+Each day should follow this exact format:
+
+```
+### Day X
+
+[Short theme sentence encapsulating the day's reading]
+
+>"[Scripture quote]" ([Book Chapter:Verse])
+
+ [Read [Book Chapter]](https://www.bible.com/bible/114/[BOOK_ABBREV].[CHAPTER].NKJV)
+```
+
+### Bible.com Book Abbreviations
+- Genesis = GEN
+- Exodus = EXO
+- Leviticus = LEV
+- Numbers = NUM
+- Deuteronomy = DEU
+- Joshua = JOS
+- Judges = JDG
+- Ruth = RUT
+- 1 Samuel = 1SA
+- 2 Samuel = 2SA
+- 1 Kings = 1KI
+- 2 Kings = 2KI
+- 1 Chronicles = 1CH
+- 2 Chronicles = 2CH
+- Ezra = EZR
+- Nehemiah = NEH
+- Esther = EST
+- Job = JOB
+- Psalms = PSA
+- Proverbs = PRO
+- Ecclesiastes = ECC
+- Song of Solomon = SNG
+- Isaiah = ISA
+- Jeremiah = JER
+- Lamentations = LAM
+- Ezekiel = EZK
+- Daniel = DAN
+- Hosea = HOS
+- Joel = JOL
+- Amos = AMO
+- Obadiah = OBA
+- Jonah = JON
+- Micah = MIC
+- Nahum = NAM
+- Habakkuk = HAB
+- Zephaniah = ZEP
+- Haggai = HAG
+- Zechariah = ZEC
+- Malachi = MAL
+- Matthew = MAT
+- Mark = MRK
+- Luke = LUK
+- John = JHN
+- Acts = ACT
+- Romans = ROM
+- 1 Corinthians = 1CO
+- 2 Corinthians = 2CO
+- Galatians = GAL
+- Ephesians = EPH
+- Philippians = PHP
+- Colossians = COL
+- 1 Thessalonians = 1TH
+- 2 Thessalonians = 2TH
+- 1 Timothy = 1TI
+- 2 Timothy = 2TI
+- Titus = TIT
+- Philemon = PHM
+- Hebrews = HEB
+- James = JAS
+- 1 Peter = 1PE
+- 2 Peter = 2PE
+- 1 John = 1JN
+- 2 John = 2JN
+- 3 John = 3JN
+- Jude = JUD
+- Revelation = REV
+
+## Biblical Order of Books
+
+Verses should appear in canonical biblical order:
+
+### Old Testament (Torah → Prophets → Writings)
+1. Genesis
+2. Exodus
+3. Leviticus
+4. Numbers
+5. Deuteronomy
+6. Joshua
+7. Judges
+8. Ruth
+9. 1 Samuel
+10. 2 Samuel
+11. 1 Kings
+12. 2 Kings
+13. 1 Chronicles
+14. 2 Chronicles
+15. Ezra
+16. Nehemiah
+17. Esther
+18. Job
+19. Psalms
+20. Proverbs
+21. Ecclesiastes
+22. Song of Solomon
+23. Isaiah
+24. Jeremiah
+25. Lamentations
+26. Ezekiel
+27. Daniel
+28. Hosea
+29. Joel
+30. Amos
+31. Obadiah
+32. Jonah
+33. Micah
+34. Nahum
+35. Habakkuk
+36. Zephaniah
+37. Haggai
+38. Zechariah
+39. Malachi
+
+### New Testament (Gospels → Acts → Epistles → Revelation)
+40. Matthew
+41. Mark
+42. Luke
+43. John
+44. Acts
+45. Romans
+46. 1 Corinthians
+47. 2 Corinthians
+48. Galatians
+49. Ephesians
+50. Philippians
+51. Colossians
+52. 1 Thessalonians
+53. 2 Thessalonians
+54. 1 Timothy
+55. 2 Timothy
+56. Titus
+57. Philemon
+58. Hebrews
+59. James
+60. 1 Peter
+61. 2 Peter
+62. 1 John
+63. 2 John
+64. 3 John
+65. Jude
+66. Revelation
+
+## Example Day Entry
+
+```markdown
+### Day 1
+
+The first mention of God's mark—Passover blood as a sign of redemption.
+
+>"It shall be as a sign to you on your hand and as a memorial between your eyes, that the LORD's law may be in your mouth" (Exodus 13:9)
+
+ [Read Exodus 13](https://www.bible.com/bible/114/EXO.13.NKJV)
+```
+
+## Notes
+- Each week typically has 7 days of readings
+- Include a short theme sentence after the Day header to encapsulate the reading's focus
+- The blockquote should include a key verse from the chapter
+- Always use NKJV translation (code 114) for bible.com links
+- Maintain consistent spacing: blank line after header, blank line after theme sentence, blank line after blockquote
+

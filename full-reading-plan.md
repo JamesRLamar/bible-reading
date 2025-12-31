@@ -1,3 +1,8 @@
+<!-- Bible Reading Plan - Generated for 2026 -->
+<!-- Start Date: 2026-01-04 -->
+<!-- Regenerate with: node compile-weeks.js -->
+
+<!-- Week of Jan 3 -->
 ### Week 1: Creation, Fall, and Redemption
 
 - **Day 1:** Genesis 1 – Creation of the World: God Creates the Heavens and the Earth – [Read NKJV](https://www.bible.com/bible/114/GEN.1.NKJV)
@@ -10,6 +15,7 @@
 
 ---
 
+<!-- Week of Jan 10 -->
 ### Week 2: Covenants of God with Humanity
 
 - **Day 1:** Genesis 12 – The Call of Abram: God's Promise to Bless All Nations – [Read NKJV](https://www.bible.com/bible/114/GEN.12.NKJV)
@@ -22,6 +28,7 @@
 
 ---
 
+<!-- Week of Jan 17 -->
 ### Week 3: Faith and Righteousness: Abraham's Story
 
 - **Day 1:** Genesis 22 – Abraham's Faith Tested: The Sacrifice of Isaac – [Read NKJV](https://www.bible.com/bible/114/GEN.22.NKJV)
@@ -34,6 +41,7 @@
 
 ---
 
+<!-- Week of Jan 24 -->
 ### Week 4: The Name of the Lord—Power, Presence, and Revelation
 
 Exploring how God reveals Himself through His Name and how it carries divine power, protection, and presence.
@@ -48,6 +56,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jan 31 -->
 ### Week 5: Law, Holiness, the Shema, and Worship
 
 - **Day 1:** Exodus 20 – The Ten Commandments: God Gives His Law at Mount Sinai – [Read NKJV](https://www.bible.com/bible/114/EXO.20.NKJV)
@@ -60,6 +69,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Feb 7 -->
 ### Week 6: Wilderness Journeys: Trust and Provision
 
 - **Day 1:** Numbers 13 – Spies Sent to Canaan: The Report of the Promised Land – [Read NKJV](https://www.bible.com/bible/114/NUM.13.NKJV)
@@ -72,6 +82,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Feb 14 -->
 ### Week 7: Entering the Promise: Faithfulness of God
 
 - **Day 1:** Joshua 1 – Be Strong and Courageous: Joshua Takes Leadership – [Read NKJV](https://www.bible.com/bible/114/JOS.1.NKJV)
@@ -84,6 +95,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Feb 21 -->
 ### Week 8: Leadership in Israel: Judges and Kings
 
 - **Day 1:** Judges 2 – Israel's Unfaithfulness: A Cycle of Sin and Deliverance – [Read NKJV](https://www.bible.com/bible/114/JDG.2.NKJV)
@@ -96,6 +108,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Feb 28 -->
 ### Week 9: Wisdom for Living: Proverbs, Ecclesiastes, and James
 
 - **Day 1:** Proverbs 1 – The Beginning of Wisdom: Fear of the Lord – [Read NKJV](https://www.bible.com/bible/114/PRO.1.NKJV)
@@ -108,6 +121,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Mar 7 -->
 ### Week 10: The Fear of the Lord and Holiness
 
 - **Day 1:** Leviticus 19 – Be Holy: Laws for Holiness and Justice – [Read NKJV](https://www.bible.com/bible/114/LEV.19.NKJV)
@@ -120,6 +134,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Mar 14 -->
 ### Week 11: Justice, Mercy, and Righteousness
 
 - **Day 1:** Micah 6 – What Does the Lord Require? Act Justly, Love Mercy, Walk Humbly – [Read NKJV](https://www.bible.com/bible/114/MIC.6.NKJV)
@@ -132,6 +147,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Mar 21 -->
 ### Week 12: Prophets Calling for Repentance and Restoration
 
 - **Day 1:** Jeremiah 1 – The Call of Jeremiah: A Prophet to the Nations – [Read NKJV](https://www.bible.com/bible/114/JER.1.NKJV)
@@ -144,30 +160,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
-### Week 13: Messianic Hope: Prophecies and Fulfillment
-
-- **Day 1:** Isaiah 7 – The Virgin Will Conceive: A Sign of Immanuel – [Read NKJV](https://www.bible.com/bible/114/ISA.7.NKJV)
-- **Day 2:** Isaiah 9 – For to Us a Child Is Born: Prophecy of the Messiah's Reign – [Read NKJV](https://www.bible.com/bible/114/ISA.9.NKJV)
-- **Day 3:** Isaiah 53 – The Suffering Servant: The Messiah Bears Our Sins – [Read NKJV](https://www.bible.com/bible/114/ISA.53.NKJV)
-- **Day 4:** Matthew 1 – The Genealogy of Jesus: The Birth of the Messiah Foretold – [Read NKJV](https://www.bible.com/bible/114/MAT.1.NKJV)
-- **Day 5:** Luke 2 – The Birth of Jesus: Glory to God in the Highest – [Read NKJV](https://www.bible.com/bible/114/LUK.2.NKJV)
-- **Day 6:** Psalm 22 – Messianic prophecy of suffering; trust in God despite despair. – [Read NKJV](https://www.bible.com/bible/114/PSA.22.NKJV)
-- **Day 7:** Proverbs 15 – A gentle answer turns away wrath; wisdom brings joy to the heart. – [Read NKJV](https://www.bible.com/bible/114/PRO.15.NKJV)
-
----
-
-### Week 14: The Incarnation: God with Us
-
-- **Day 1:** John 1 – The Word Became Flesh: Jesus, the Light of the World – [Read NKJV](https://www.bible.com/bible/114/JHN.1.NKJV)
-- **Day 2:** Luke 1 – Gabriel announces Yeshua's birth; Mary's song praises God's mercy. – [Read NKJV](https://www.bible.com/bible/114/LUK.1.NKJV)
-- **Day 3:** Luke 2 – The Birth of Jesus: Glory to God in the Highest – [Read NKJV](https://www.bible.com/bible/114/LUK.2.NKJV)
-- **Day 4:** Matthew 1 – The Genealogy of Jesus: The Birth of the Messiah Foretold – [Read NKJV](https://www.bible.com/bible/114/MAT.1.NKJV)
-- **Day 5:** Galatians 4 – God sent His Son, born under the law, to redeem and adopt us. – [Read NKJV](https://www.bible.com/bible/114/GAL.4.NKJV)
-- **Day 6:** Psalm 24 – The earth belongs to the Lord; the King of glory enters in. – [Read NKJV](https://www.bible.com/bible/114/PSA.24.NKJV)
-- **Day 7:** Proverbs 17 – A cheerful heart brings healing; wisdom shows restraint in speech. – [Read NKJV](https://www.bible.com/bible/114/PRO.17.NKJV)
-
----
-
+<!-- Week of Mar 28 -->
 ### Week 15: Passover and the Spring Feasts
 
 - **Day 1:** Exodus 12 – The First Passover: God's Deliverance from Egypt – [Read NKJV](https://www.bible.com/bible/114/EXO.12.NKJV)
@@ -180,6 +173,33 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Apr 4 -->
+### Week 13: Messianic Hope: Prophecies and Fulfillment
+
+- **Day 1:** Isaiah 7 – The Virgin Will Conceive: A Sign of Immanuel – [Read NKJV](https://www.bible.com/bible/114/ISA.7.NKJV)
+- **Day 2:** Isaiah 9 – For to Us a Child Is Born: Prophecy of the Messiah's Reign – [Read NKJV](https://www.bible.com/bible/114/ISA.9.NKJV)
+- **Day 3:** Isaiah 53 – The Suffering Servant: The Messiah Bears Our Sins – [Read NKJV](https://www.bible.com/bible/114/ISA.53.NKJV)
+- **Day 4:** Matthew 1 – The Genealogy of Jesus: The Birth of the Messiah Foretold – [Read NKJV](https://www.bible.com/bible/114/MAT.1.NKJV)
+- **Day 5:** Luke 2 – The Birth of Jesus: Glory to God in the Highest – [Read NKJV](https://www.bible.com/bible/114/LUK.2.NKJV)
+- **Day 6:** Psalm 22 – Messianic prophecy of suffering; trust in God despite despair. – [Read NKJV](https://www.bible.com/bible/114/PSA.22.NKJV)
+- **Day 7:** Proverbs 15 – A gentle answer turns away wrath; wisdom brings joy to the heart. – [Read NKJV](https://www.bible.com/bible/114/PRO.15.NKJV)
+
+---
+
+<!-- Week of Apr 11 -->
+### Week 14: The Incarnation: God with Us
+
+- **Day 1:** John 1 – The Word Became Flesh: Jesus, the Light of the World – [Read NKJV](https://www.bible.com/bible/114/JHN.1.NKJV)
+- **Day 2:** Luke 1 – Gabriel announces Yeshua's birth; Mary's song praises God's mercy. – [Read NKJV](https://www.bible.com/bible/114/LUK.1.NKJV)
+- **Day 3:** Luke 2 – The Birth of Jesus: Glory to God in the Highest – [Read NKJV](https://www.bible.com/bible/114/LUK.2.NKJV)
+- **Day 4:** Matthew 1 – The Genealogy of Jesus: The Birth of the Messiah Foretold – [Read NKJV](https://www.bible.com/bible/114/MAT.1.NKJV)
+- **Day 5:** Galatians 4 – God sent His Son, born under the law, to redeem and adopt us. – [Read NKJV](https://www.bible.com/bible/114/GAL.4.NKJV)
+- **Day 6:** Psalm 24 – The earth belongs to the Lord; the King of glory enters in. – [Read NKJV](https://www.bible.com/bible/114/PSA.24.NKJV)
+- **Day 7:** Proverbs 17 – A cheerful heart brings healing; wisdom shows restraint in speech. – [Read NKJV](https://www.bible.com/bible/114/PRO.17.NKJV)
+
+---
+
+<!-- Week of Apr 18 -->
 ### Week 16: The Kingdom of Heaven: Teachings of Yeshua
 
 - **Day 1:** Matthew 5 – The Beatitudes: The Blessings of Kingdom Living – [Read NKJV](https://www.bible.com/bible/114/MAT.5.NKJV)
@@ -192,6 +212,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Apr 25 -->
 ### Week 17: Miracles, Signs, and Power of the Messiah
 
 - **Day 1:** Matthew 8 – Yeshua heals the sick, calms storms, and shows divine authority. – [Read NKJV](https://www.bible.com/bible/114/MAT.8.NKJV)
@@ -204,6 +225,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of May 2 -->
 ### Week 18: Discipleship: Following Yeshua in Word and Deed
 
 - **Day 1:** Matthew 10 – Yeshua sends out disciples, calling for bold, sacrificial service. – [Read NKJV](https://www.bible.com/bible/114/MAT.10.NKJV)
@@ -216,6 +238,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of May 9 -->
 ### Week 19: Love of God and Neighbor
 
 - **Day 1:** Leviticus 19 – Be Holy: Laws for Holiness and Justice – [Read NKJV](https://www.bible.com/bible/114/LEV.19.NKJV)
@@ -228,6 +251,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of May 16 -->
 ### Week 20: Prayer, Intimacy, and Relationship with God
 
 - **Day 1:** Psalm 23 – The Lord is My Shepherd: Comfort and Provision – [Read NKJV](https://www.bible.com/bible/114/PSA.23.NKJV)
@@ -240,6 +264,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of May 23 -->
 ### Week 21: Forgiveness, Reconciliation, and New Beginnings
 
 - **Day 1:** Genesis 33 – Jacob and Esau Reconcile – [Read NKJV](https://www.bible.com/bible/114/GEN.33.NKJV)
@@ -252,6 +277,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of May 30 -->
 ### Week 22: The Passion, Cross, and Atonement
 
 - **Day 1:** Isaiah 53 – The Suffering Servant – [Read NKJV](https://www.bible.com/bible/114/ISA.53.NKJV)
@@ -264,6 +290,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jun 6 -->
 ### Week 23: Resurrection – Victory Over Death
 
 - **Day 1:** Isaiah 25 – Death Swallowed Up – [Read NKJV](https://www.bible.com/bible/114/ISA.25.NKJV)
@@ -276,6 +303,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jun 13 -->
 ### Week 24: The Great Commission – Mission and Evangelism
 
 - **Day 1:** Isaiah 49 – A Light to the Nations – [Read NKJV](https://www.bible.com/bible/114/ISA.49.NKJV)
@@ -288,6 +316,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jun 20 -->
 ### Week 25: Pentecost – The Outpouring of the Spirit
 
 - **Day 1:** Joel 2 – "I Will Pour Out My Spirit" – [Read NKJV](https://www.bible.com/bible/114/JOL.2.NKJV)
@@ -300,6 +329,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jun 27 -->
 ### Week 26: Life in the Spirit – Power and Truth
 
 - **Day 1:** Ezekiel 36 – A New Heart and Spirit – [Read NKJV](https://www.bible.com/bible/114/EZK.36.NKJV)
@@ -312,6 +342,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jul 4 -->
 ### Week 27: Unity and Diversity in the Body of Messiah
 
 - **Day 1:** Ezekiel 37 – One Nation Under One King – [Read NKJV](https://www.bible.com/bible/114/EZK.37.NKJV)
@@ -324,6 +355,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jul 11 -->
 ### Week 28: Spiritual Gifts and Servant Leadership
 
 - **Day 1:** Exodus 31 – Bezalel Filled with the Spirit – [Read NKJV](https://www.bible.com/bible/114/EXO.31.NKJV)
@@ -336,6 +368,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jul 18 -->
 ### Week 29: Faith, Hope, and Love – Core of Christian Living
 
 - **Day 1:** Genesis 15 – Abram Believed God – [Read NKJV](https://www.bible.com/bible/114/GEN.15.NKJV)
@@ -348,6 +381,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Jul 25 -->
 ### Week 30: The Role of the Church – The Called‑Out Ones
 
 - **Day 1:** Isaiah 2 – The Mountain of the Lord – [Read NKJV](https://www.bible.com/bible/114/ISA.2.NKJV)
@@ -360,6 +394,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Aug 1 -->
 ### Week 31: Perseverance and Endurance in Trials
 
 - **Day 1:** Job 1 – Tested Yet Faithful – [Read NKJV](https://www.bible.com/bible/114/JOB.1.NKJV)
@@ -372,6 +407,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Aug 8 -->
 ### Week 32: The Return of the Messiah and Final Judgment
 
 - **Day 1:** Daniel 7 – Son of Man Receives the Kingdom – [Read NKJV](https://www.bible.com/bible/114/DAN.7.NKJV)
@@ -384,6 +420,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Aug 15 -->
 ### Week 33: New Heavens and New Earth – Eternal Hope
 
 - **Day 1:** Isaiah 65 – "Behold, I Create New Heavens" – [Read NKJV](https://www.bible.com/bible/114/ISA.65.NKJV)
@@ -396,6 +433,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Aug 22 -->
 ### Week 34: Joy, Peace, and Shalom in God's Plan
 
 - **Day 1:** Isaiah 55 – Joy for the Thirsty – [Read NKJV](https://www.bible.com/bible/114/ISA.55.NKJV)
@@ -408,6 +446,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Aug 29 -->
 ### Week 35: The Image of God – Identity and Purpose
 
 - **Day 1:** Genesis 1 – Created in His Image – [Read NKJV](https://www.bible.com/bible/114/GEN.1.NKJV)
@@ -420,42 +459,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
-### Week 36: Humility and Servanthood – Following Yeshua's Example
-
-- **Day 1:** Micah 6 – What the Lord Requires – [Read NKJV](https://www.bible.com/bible/114/MIC.6.NKJV)
-- **Day 2:** Mark 9 – "Servant of All" – [Read NKJV](https://www.bible.com/bible/114/MRK.9.NKJV)
-- **Day 3:** John 13 – Jesus Washes Feet – [Read NKJV](https://www.bible.com/bible/114/JHN.13.NKJV)
-- **Day 4:** Philippians 2 – Mind of Christ – [Read NKJV](https://www.bible.com/bible/114/PHP.2.NKJV)
-- **Day 5:** 1 Peter 5 – Shepherd Humbly – [Read NKJV](https://www.bible.com/bible/114/1PE.5.NKJV)
-- **Day 6:** Psalm 131 – A Calm, Humble Heart – [Read NKJV](https://www.bible.com/bible/114/PSA.131.NKJV)
-- **Day 7:** Proverbs 22 – Humility and Fear of the Lord – [Read NKJV](https://www.bible.com/bible/114/PRO.22.NKJV)
-
----
-
-### Week 37: Sacrifice, Service, and Radical Generosity
-
-- **Day 1:** 2 Samuel 24 – Costly Sacrifice – [Read NKJV](https://www.bible.com/bible/114/2SA.24.NKJV)
-- **Day 2:** Mark 12 – The Widow's Mite – [Read NKJV](https://www.bible.com/bible/114/MRK.12.NKJV)
-- **Day 3:** Acts 4 – Believers Share Everything – [Read NKJV](https://www.bible.com/bible/114/ACT.4.NKJV)
-- **Day 4:** 2 Corinthians 8 – Excelling in Giving – [Read NKJV](https://www.bible.com/bible/114/2CO.8.NKJV)
-- **Day 5:** Hebrews 13 – Do Good and Share – [Read NKJV](https://www.bible.com/bible/114/HEB.13.NKJV)
-- **Day 6:** Psalm 112 – Generous Hearts Are Steadfast – [Read NKJV](https://www.bible.com/bible/114/PSA.112.NKJV)
-- **Day 7:** Proverbs 11 – One Gives Freely Yet Grows Richer – [Read NKJV](https://www.bible.com/bible/114/PRO.11.NKJV)
-
----
-
-### Week 38: Exile and Return – Lessons from Ezra and Nehemiah
-
-- **Day 1:** Ezra 1 – Decree of Cyrus – [Read NKJV](https://www.bible.com/bible/114/EZR.1.NKJV)
-- **Day 2:** Nehemiah 2 – Rebuilding the Walls – [Read NKJV](https://www.bible.com/bible/114/NEH.2.NKJV)
-- **Day 3:** Haggai 2 – Glory of the Latter Temple – [Read NKJV](https://www.bible.com/bible/114/HAG.2.NKJV)
-- **Day 4:** Isaiah 40 – Comfort My People – [Read NKJV](https://www.bible.com/bible/114/ISA.40.NKJV)
-- **Day 5:** Zechariah 8 – Restoration Promised – [Read NKJV](https://www.bible.com/bible/114/ZEC.8.NKJV)
-- **Day 6:** Psalm 126 – We Were Like Those Who Dream – [Read NKJV](https://www.bible.com/bible/114/PSA.126.NKJV)
-- **Day 7:** Proverbs 24 – Prepare Your Work Outside – [Read NKJV](https://www.bible.com/bible/114/PRO.24.NKJV)
-
----
-
+<!-- Week of Sep 5 -->
 ### Week 39: Trumpets and the Fall Feasts
 
 - **Day 1:** Leviticus 23 – Feast of Trumpets – [Read NKJV](https://www.bible.com/bible/114/LEV.23.NKJV)
@@ -468,6 +472,46 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Sep 12 -->
+### Week 36: Humility and Servanthood – Following Yeshua's Example
+
+- **Day 1:** Micah 6 – What the Lord Requires – [Read NKJV](https://www.bible.com/bible/114/MIC.6.NKJV)
+- **Day 2:** Mark 9 – "Servant of All" – [Read NKJV](https://www.bible.com/bible/114/MRK.9.NKJV)
+- **Day 3:** John 13 – Jesus Washes Feet – [Read NKJV](https://www.bible.com/bible/114/JHN.13.NKJV)
+- **Day 4:** Philippians 2 – Mind of Christ – [Read NKJV](https://www.bible.com/bible/114/PHP.2.NKJV)
+- **Day 5:** 1 Peter 5 – Shepherd Humbly – [Read NKJV](https://www.bible.com/bible/114/1PE.5.NKJV)
+- **Day 6:** Psalm 131 – A Calm, Humble Heart – [Read NKJV](https://www.bible.com/bible/114/PSA.131.NKJV)
+- **Day 7:** Proverbs 22 – Humility and Fear of the Lord – [Read NKJV](https://www.bible.com/bible/114/PRO.22.NKJV)
+
+---
+
+<!-- Week of Sep 19 -->
+### Week 37: Sacrifice, Service, and Radical Generosity
+
+- **Day 1:** 2 Samuel 24 – Costly Sacrifice – [Read NKJV](https://www.bible.com/bible/114/2SA.24.NKJV)
+- **Day 2:** Mark 12 – The Widow's Mite – [Read NKJV](https://www.bible.com/bible/114/MRK.12.NKJV)
+- **Day 3:** Acts 4 – Believers Share Everything – [Read NKJV](https://www.bible.com/bible/114/ACT.4.NKJV)
+- **Day 4:** 2 Corinthians 8 – Excelling in Giving – [Read NKJV](https://www.bible.com/bible/114/2CO.8.NKJV)
+- **Day 5:** Hebrews 13 – Do Good and Share – [Read NKJV](https://www.bible.com/bible/114/HEB.13.NKJV)
+- **Day 6:** Psalm 112 – Generous Hearts Are Steadfast – [Read NKJV](https://www.bible.com/bible/114/PSA.112.NKJV)
+- **Day 7:** Proverbs 11 – One Gives Freely Yet Grows Richer – [Read NKJV](https://www.bible.com/bible/114/PRO.11.NKJV)
+
+---
+
+<!-- Week of Sep 26 -->
+### Week 38: Exile and Return – Lessons from Ezra and Nehemiah
+
+- **Day 1:** Ezra 1 – Decree of Cyrus – [Read NKJV](https://www.bible.com/bible/114/EZR.1.NKJV)
+- **Day 2:** Nehemiah 2 – Rebuilding the Walls – [Read NKJV](https://www.bible.com/bible/114/NEH.2.NKJV)
+- **Day 3:** Haggai 2 – Glory of the Latter Temple – [Read NKJV](https://www.bible.com/bible/114/HAG.2.NKJV)
+- **Day 4:** Isaiah 40 – Comfort My People – [Read NKJV](https://www.bible.com/bible/114/ISA.40.NKJV)
+- **Day 5:** Zechariah 8 – Restoration Promised – [Read NKJV](https://www.bible.com/bible/114/ZEC.8.NKJV)
+- **Day 6:** Psalm 126 – We Were Like Those Who Dream – [Read NKJV](https://www.bible.com/bible/114/PSA.126.NKJV)
+- **Day 7:** Proverbs 24 – Prepare Your Work Outside – [Read NKJV](https://www.bible.com/bible/114/PRO.24.NKJV)
+
+---
+
+<!-- Week of Oct 3 -->
 ### Week 40: Bride of Messiah – Revelation and Relationship
 
 - **Day 1:** Genesis 24 – A Bride for Isaac – [Read NKJV](https://www.bible.com/bible/114/GEN.24.NKJV)
@@ -480,6 +524,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Oct 10 -->
 ### Week 41: Patience, Waiting, and God's Perfect Timing
 
 - **Day 1:** Genesis 21 – Isaac Born at the Set Time – [Read NKJV](https://www.bible.com/bible/114/GEN.21.NKJV)
@@ -492,6 +537,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Oct 17 -->
 ### Week 42: Living as Pilgrims – Journeying in Faith
 
 - **Day 1:** Genesis 12 – Abram Called to Pilgrimage – [Read NKJV](https://www.bible.com/bible/114/GEN.12.NKJV)
@@ -504,6 +550,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Oct 24 -->
 ### Week 43: God's Glory Among the Nations
 
 - **Day 1:** Isaiah 60 – Nations Come to Your Light – [Read NKJV](https://www.bible.com/bible/114/ISA.60.NKJV)
@@ -516,6 +563,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Oct 31 -->
 ### Week 44: Generational Faithfulness – Legacy in Scripture
 
 - **Day 1:** Deuteronomy 6 – Teach Them Diligently – [Read NKJV](https://www.bible.com/bible/114/DEU.6.NKJV)
@@ -528,6 +576,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Nov 7 -->
 ### Week 45: Eternal Life – Fellowship with God Forever
 
 - **Day 1:** Daniel 12 – Everlasting Life – [Read NKJV](https://www.bible.com/bible/114/DAN.12.NKJV)
@@ -540,6 +589,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Nov 14 -->
 ### Week 46: Obedience and Blessing – Walking in God's Ways
 
 - **Day 1:** Deuteronomy 28 – Blessings for Obedience – [Read NKJV](https://www.bible.com/bible/114/DEU.28.NKJV)
@@ -552,6 +602,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Nov 21 -->
 ### Week 47: Worship as a Lifestyle – From Tabernacle to Temple to Heart
 
 - **Day 1:** Exodus 15 – Song of Moses – [Read NKJV](https://www.bible.com/bible/114/EXO.15.NKJV)
@@ -564,6 +615,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Nov 28 -->
 ### Week 48: God's Sovereignty Over History – From Genesis to Revelation
 
 - **Day 1:** Genesis 50 – God Intended It for Good – [Read NKJV](https://www.bible.com/bible/114/GEN.50.NKJV)
@@ -576,6 +628,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Dec 5 -->
 ### Week 49: Holiness and the Call to Be Set Apart
 
 - **Day 1:** Leviticus 20:26 – Be Holy for I Am Holy – [Read NKJV](https://www.bible.com/bible/114/LEV.20.NKJV)
@@ -588,6 +641,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Dec 12 -->
 ### Week 50: Redemption's Story – From Eden to Eternity
 
 - **Day 1:** Genesis 3 – The Fall and First Promise – [Read NKJV](https://www.bible.com/bible/114/GEN.3.NKJV)
@@ -600,6 +654,7 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Dec 19 -->
 ### Week 51: Spiritual Warfare and Victory in Messiah
 
 - **Day 1:** Ephesians 6 – The Armor of God: Standing Against the Devil's Schemes – [Read NKJV](https://www.bible.com/bible/114/EPH.6.NKJV)
@@ -612,10 +667,11 @@ Exploring how God reveals Himself through His Name and how it carries divine pow
 
 ---
 
+<!-- Week of Dec 26 -->
 ### Week 52: The Gift of Prophecy and Hearing God's Voice
 
 - **Day 1:** 1 Corinthians 14 – Prophecy edifies the church, revealing God's heart. – [Read NKJV](https://www.bible.com/bible/114/1CO.14.NKJV)
-- **Day 2:** Joel 2 – God's Spirit will be poured out, empowering prophecy and vision. – [Read NKJV](https://www.bible.com/bible/114/JOL.2.NKJV)
+	- **Day 2:** Joel 2 – God's Spirit will be poured out, empowering prophecy and vision. – [Read NKJV](https://www.bible.com/bible/114/JOL.2.NKJV)
 - **Day 3:** Acts 2 – The Holy Spirit descends, fulfilling God's promise of prophecy. – [Read NKJV](https://www.bible.com/bible/114/ACT.2.NKJV)
 - **Day 4:** Isaiah 58 – True worship and hearing God's voice require justice and mercy. – [Read NKJV](https://www.bible.com/bible/114/ISA.58.NKJV)
 - **Day 5:** Luke 4 – Yeshua proclaims good news, fulfilling prophetic promises. – [Read NKJV](https://www.bible.com/bible/114/LUK.4.NKJV)
