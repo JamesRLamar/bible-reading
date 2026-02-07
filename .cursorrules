@@ -1,5 +1,12 @@
 # Bible Reading Plan - Cursor Rules
 
+## Goals for this plan
+- Canonical coherence: Torah → Prophets → Writings → Gospels → Apostolic writings
+- Messianic continuity: Yeshua is not imported late but emerges organically
+- Liturgical sensitivity: Feasts, seasons, and rhythms are honored
+- Balanced diet: Narrative, law, wisdom, prophecy, gospel, epistle
+- Weekly theological arc rather than random daily readings
+
 ## Week File Format Requirements
 
 Each week file should follow this structure:
@@ -177,8 +184,11 @@ The first mention of God's mark—Passover blood as a sign of redemption.
 
 ## Notes
 - Each week typically has 7 days of readings
+- Each week starts on Sunday
+- **Within each week, order the days so the books progress in canonical order** (move forward through Scripture; avoid jumping backwards to earlier books mid-week)
 - Include a short theme sentence after the Day header to encapsulate the reading's focus
 - The blockquote should include a key verse from the chapter
 - Always use NKJV translation (code 114) for bible.com links
+- **The "Read" link should reference the full chapter only** (e.g., "Read Exodus 31" not "Read Exodus 31:13-17")
 - Maintain consistent spacing: blank line after header, blank line after theme sentence, blank line after blockquote
 

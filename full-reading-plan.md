@@ -16,7 +16,7 @@ The Sabbath established as an eternal sign between God and His people.
 
 >"It is a sign between Me and the children of Israel forever; for in six days the LORD made the heavens and the earth, and on the seventh day He rested and was refreshed." (Exodus 31:17)
 
- [Read Exodus 31:13-17](https://www.bible.com/bible/114/EXO.31.NKJV)
+ [Read Exodus 31](https://www.bible.com/bible/114/EXO.31.NKJV)
 
 ### Day 3
 
@@ -24,7 +24,7 @@ The Shema—binding God's words as signs on hand and forehead.
 
 >"Hear, O Israel: The LORD our God, the LORD is one! You shall love the LORD your God with all your heart, with all your soul, and with all your strength." (Deuteronomy 6:4-5)
 
- [Read Deuteronomy 6:4-9](https://www.bible.com/bible/114/DEU.6.NKJV)
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)
 
 ### Day 4
 
@@ -299,3 +299,124 @@ The Name above every name—at the name of Yeshua, every knee will bow.
 >"Therefore God also has highly exalted Him and given Him the name which is above every name, that at the name of Jesus every knee should bow, of those in heaven, and of those on earth, and of those under the earth." (Philippians 2:9-10)
 
  [Read Philippians 2](https://www.bible.com/bible/114/PHP.2.NKJV)
+
+## Sabbath as a Sign (Feb 8)
+
+The Sabbath is God's eternal sign of creation, covenant, and rest—from the seventh day in Eden to entering His rest in Messiah.
+
+### Day 1
+
+God rested on the seventh day and sanctified it.
+
+>"And on the seventh day God ended His work which He had done, and He rested on the seventh day from all His work which He had done. Then God blessed the seventh day and sanctified it." (Genesis 2:2-3)
+
+ [Read Genesis 2](https://www.bible.com/bible/114/GEN.2.NKJV)
+
+### Day 2
+
+Remember the Sabbath day—the fourth commandment.
+
+>"Remember the Sabbath day, to keep it holy. Six days you shall labor and do all your work, but the seventh day is the Sabbath of the LORD your God." (Exodus 20:8-10)
+
+ [Read Exodus 20](https://www.bible.com/bible/114/EXO.20.NKJV)
+
+### Day 3
+
+Sabbath as an eternal sign between God and His people.
+
+>"It is a sign between Me and the children of Israel forever; for in six days the LORD made the heavens and the earth, and on the seventh day He rested and was refreshed." (Exodus 31:17)
+
+ [Read Exodus 31](https://www.bible.com/bible/114/EXO.31.NKJV)
+
+### Day 4
+
+Call the Sabbath a delight—honoring it as holy.
+
+>"If you turn away your foot from the Sabbath, from doing your pleasure on My holy day, and call the Sabbath a delight, the holy day of the LORD honorable." (Isaiah 58:13)
+
+ [Read Isaiah 58](https://www.bible.com/bible/114/ISA.58.NKJV)
+
+### Day 5
+
+The Sabbath was made for man—Yeshua is Lord of the Sabbath.
+
+>"And He said to them, 'The Sabbath was made for man, and not man for the Sabbath. Therefore the Son of Man is also Lord of the Sabbath.'" (Mark 2:27-28)
+
+ [Read Mark 2](https://www.bible.com/bible/114/MRK.2.NKJV)
+
+### Day 6
+
+Entering God's rest—the promise of Sabbath rest remains.
+
+>"There remains therefore a rest for the people of God. For he who has entered His rest has himself also ceased from his works as God did from His." (Hebrews 4:9-10)
+
+ [Read Hebrews 4](https://www.bible.com/bible/114/HEB.4.NKJV)
+
+### Day 7
+
+A Psalm for the Sabbath day—praise and thanksgiving.
+
+>"It is good to give thanks to the LORD, and to sing praises to Your name, O Most High; to declare Your lovingkindness in the morning, and Your faithfulness every night." (Psalm 92:1-2)
+
+ [Read Psalm 92](https://www.bible.com/bible/114/PSA.92.NKJV)
+
+
+## Fasting, Prayer, and Spiritual Power (Feb 15)
+
+Fasting and prayer humble the soul, sharpen spiritual vision, and align God's people with His purposes.
+
+### Day 1
+
+True fasting: repentance expressed through justice, mercy, and care for the oppressed.
+
+>"Is this not the fast that I have chosen: To loose the bonds of wickedness, to undo the heavy burdens, to let the oppressed go free, and that you break every yoke?" (Isaiah 58:6)
+
+ [Read Isaiah 58](https://www.bible.com/bible/114/ISA.58.NKJV)
+
+### Day 2
+
+Fasting opens the way for divine revelation and strengthens perseverance in spiritual conflict.
+
+>"Then he said to me, 'Do not fear, Daniel, for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard; and I have come because of your words.'" (Daniel 10:12)
+
+ [Read Daniel 10](https://www.bible.com/bible/114/DAN.10.NKJV)
+
+### Day 3
+
+Return to the Lord with fasting—He is gracious and ready to restore.
+
+>"Now, therefore," says the LORD, "Turn to Me with all your heart, with fasting, with weeping, and with mourning." (Joel 2:12)
+
+ [Read Joel 2](https://www.bible.com/bible/114/JOL.2.NKJV)
+
+### Day 4
+
+When you fast, do it unto the Father—hidden devotion that He rewards openly.
+
+>"But you, when you fast, anoint your head and wash your face, so that you do not appear to men to be fasting, but to your Father who is in the secret place; and your Father who sees in secret will reward you openly." (Matthew 6:17-18)
+
+ [Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
+
+### Day 5
+
+Some battles require prayer—and fasting that depends fully on God.
+
+>"And He said to them, 'This kind can come out by nothing but prayer and fasting.'" (Mark 9:29)
+
+ [Read Mark 9](https://www.bible.com/bible/114/MRK.9.NKJV)
+
+### Day 6
+
+The Spirit leads into the wilderness: fasting prepares for faithful obedience and ministry.
+
+>"And Jesus, being filled with the Holy Spirit, returned from the Jordan and was led by the Spirit into the wilderness, being tempted for forty days by the devil. And in those days He ate nothing, and afterward, when they had ended, He was hungry." (Luke 4:1-2)
+
+ [Read Luke 4](https://www.bible.com/bible/114/LUK.4.NKJV)
+
+### Day 7
+
+The church fasted and prayed before sending—mission and discernment flow from worship.
+
+>"As they ministered to the Lord and fasted, the Holy Spirit said, 'Now separate to Me Barnabas and Saul for the work to which I have called them.'" (Acts 13:2)
+
+ [Read Acts 13](https://www.bible.com/bible/114/ACT.13.NKJV)

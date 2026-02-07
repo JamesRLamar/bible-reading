@@ -1,124 +1,14 @@
 # bible-reading
 
-## Goals for this plan
-- Canonical coherence: Torah → Prophets → Writings → Gospels → Apostolic writings
-- Messianic continuity: Yeshua is not imported late but emerges organically
-- Liturgical sensitivity: Feasts, seasons, and rhythms are honored
-- Balanced diet: Narrative, law, wisdom, prophecy, gospel, epistle
-- Weekly theological arc rather than random daily readings
 
-Remove the numbering and just allow the compile to add dates
-
-### Day 2
-
->"The law of the Lord is perfect, converting the soul; The testimony of the Lord is sure, making wise the simple" (Psalm 19:7)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
 
 ## ideas
 
  old testament echoes int he NT 
 Fasting week after trumpets week
-Passover week could include mirrors of psalm 22 and the crucifixian chapter
 A week for every fruit of the spirit, love, joy, peace, patience, kindness, goodness, self-control
 A week on prophecy preceeding pentecost. Stories like Samuel being called, the seventy elders, Saul prophesying over David, the Anna? From the gospels, Simeon? Mary, Bezalel Filled with the Spirit
 
-## **Strong Theme Candidates from Your Book**
-
-  The Two Pillars
-  
-- **John 14:15** / **1 John 2:3-4** – Love and obedience as the Two Pillars
-
-2 Timothy 2:19
-
-
-Exodus 20:5-6: The covenant of the mark of God
-
-Revelation 14:12, 12:17
-
-### **1. The Mark of God: Signs of Covenant Belonging**
-
-*Chapters 1-5 of your book*
-
-  
-
-This theme has excellent diversity across both testaments:
-
-- **Exodus 13** – The first mention of God's Mark (Passover blood on doorposts)
-
-- **Exodus 31:13-17** – Sabbath as a sign between God and His people
-
-- **Deuteronomy 6:4-9** – The Shema (binding His words as signs on hand/forehead)
-
-- **Ezekiel 9** – Those marked who "sigh and cry" over sin
-
-- **Revelation 7** / **Revelation 14** – The seal of God on the 144,000
-
-- **John 14:15** / **1 John 2:3-4** – Love and obedience as the Two Pillars
-
-- **Psalm 119** – Meditating on God's law as a mark of devotion
-
-  
-
----
-
-  
-
-### **2. Sabbath: The Sign of Rest and Belonging**
-
-*Chapters 3 and 15 of your book*
-
-  
-
-Extremely strong scriptural foundation:
-
-- **Genesis 2:1-3** – God rested on the seventh day
-
-- **Exodus 20:8-11** – "Remember the Sabbath day"
-
-- **Exodus 31:13-17** – Sabbath as an eternal sign
-
-- **Isaiah 58:13-14** – "Call the Sabbath a delight"
-
-- **Mark 2:27-28** – "The Sabbath was made for man"
-
-- **Hebrews 4:1-11** – Entering God's rest
-
-- **Psalm 92** – A Psalm for the Sabbath day
-
-  
-
----
-
-  
-
-### **3. Fasting, Prayer, and Spiritual Power**
-
-*Chapter 19 of your book (Lost Power)*
-
-  
-
-Strong scriptural basis:
-
-- **Isaiah 58:1-12** – True fasting: justice, mercy, care for the oppressed
-
-- **Matthew 6:16-18** – "When you fast" (not if)
-
-- **Matthew 17:21 / Mark 9:29** – "This kind comes out only by prayer and fasting"
-
-- **Daniel 10:2-12** – Fasting opens the way for divine revelation
-
-- **Joel 2:12-13** – "Turn to Me with fasting, weeping, and mourning"
-
-- **Acts 13:2-3** – The church fasted before sending Paul and Barnabas
-
-- **Luke 4:1-2** – Jesus fasted 40 days before His ministry
-
-  
-
----
-
-  
 
 ### **4. The Two Tablets: Loving God and Loving Neighbor**
 

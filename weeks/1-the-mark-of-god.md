@@ -16,7 +16,7 @@ The Sabbath established as an eternal sign between God and His people.
 
 >"It is a sign between Me and the children of Israel forever; for in six days the LORD made the heavens and the earth, and on the seventh day He rested and was refreshed." (Exodus 31:17)
 
- [Read Exodus 31:13-17](https://www.bible.com/bible/114/EXO.31.NKJV)
+ [Read Exodus 31](https://www.bible.com/bible/114/EXO.31.NKJV)
 
 ### Day 3
 
@@ -24,7 +24,7 @@ The Shema—binding God's words as signs on hand and forehead.
 
 >"Hear, O Israel: The LORD our God, the LORD is one! You shall love the LORD your God with all your heart, with all your soul, and with all your strength." (Deuteronomy 6:4-5)
 
- [Read Deuteronomy 6:4-9](https://www.bible.com/bible/114/DEU.6.NKJV)
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)
 
 ### Day 4
 
