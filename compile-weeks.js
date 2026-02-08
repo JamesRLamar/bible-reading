@@ -22,11 +22,19 @@ allFiles.sort(sortByWeekNum);
 /**
  * Calculate which week number a date falls into (1-indexed)
  */
+const MS_PER_DAY = 24 * 60 * 60 * 1000;
+
+function toUtcDayNumber(dateStr) {
+  // dateStr is YYYY-MM-DD.
+  // Use a UTC day number to avoid timezone + DST shifting.
+  const [y, m, d] = dateStr.split('-').map(Number);
+  return Math.floor(Date.UTC(y, m - 1, d) / MS_PER_DAY);
+}
+
 function getWeekNumber(startDate, targetDate) {
-  const start = new Date(startDate);
-  const target = new Date(targetDate);
-  const diffTime = target - start;
-  const diffDays = Math.floor(diffTime / (1000 * 60 * 60 * 24));
+  const startDay = toUtcDayNumber(startDate);
+  const targetDay = toUtcDayNumber(targetDate);
+  const diffDays = targetDay - startDay;
   return Math.floor(diffDays / 7) + 1;
 }
 
@@ -93,9 +101,10 @@ const compiledContent = weekOrder.map((filename, index) => {
   let content = fs.readFileSync(filePath, 'utf-8').trim();
   
   // Calculate the date for this week
-  const startDate = new Date(config.startDate);
-  const weekDate = new Date(startDate.getTime() + (index * 7 * 24 * 60 * 60 * 1000));
-  const dateStr = weekDate.toLocaleDateString('en-US', { month: 'short', day: 'numeric' });
+  const startDay = toUtcDayNumber(config.startDate);
+  const weekDay = startDay + (index * 7);
+  const weekDate = new Date(weekDay * MS_PER_DAY);
+  const dateStr = weekDate.toLocaleDateString('en-US', { month: 'short', day: 'numeric', timeZone: 'UTC' });
   
   // Insert the date into the week heading (## Title -> ## Title (Jan 4))
   // Match the first ## heading and append the date

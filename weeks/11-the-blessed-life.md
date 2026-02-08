@@ -57,3 +57,4 @@ Blessed are those who do His commandments.
 >"Blessed are those who do His commandments, that they may have the right to the tree of life, and may enter through the gates into the city." (Revelation 22:14)
 
  [Read Revelation 22](https://www.bible.com/bible/114/REV.22.NKJV)
+

@@ -57,3 +57,4 @@ The great white throne judgment.
 >"Then I saw a great white throne and Him who sat on it, from whose face the earth and the heaven fled away. And there was found no place for them. And I saw the dead, small and great, standing before God." (Revelation 20:11-12)
 
  [Read Revelation 20](https://www.bible.com/bible/114/REV.20.NKJV)
+

@@ -57,3 +57,4 @@ The farmer waits for the precious fruit of the earth.
 >"Therefore be patient, brethren, until the coming of the Lord. See how the farmer waits for the precious fruit of the earth, waiting patiently for it until it receives the early and latter rain." (James 5:7)
 
  [Read James 5](https://www.bible.com/bible/114/JAS.5.NKJV)
+

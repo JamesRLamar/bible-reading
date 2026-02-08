@@ -1,3 +1,5 @@
+<!-- Bible Reading Plan 2026 | Start: 2026-01-04 | Regenerate: node compile-weeks.js -->
+
 ## The Mark of God (Jan 4)
 
 Throughout Scripture, God marks His people with an invisible sign of His covenant belonging—from Passover blood to the seal of His Spirit.
@@ -57,7 +59,6 @@ The 144,000 bear the Father's name—the ultimate mark of belonging.
 >"Then I looked, and behold, a Lamb standing on Mount Zion, and with Him one hundred and forty-four thousand, having His Father's name written on their foreheads." (Revelation 14:1)
 
  [Read Revelation 14](https://www.bible.com/bible/114/REV.14.NKJV)
-
 
 ## The Two Pillars: Relationship and Righteousness (Jan 11)
 
@@ -239,7 +240,6 @@ The final blessing—those who keep His commandments have the right to the tree 
 
  [Read Revelation 22](https://www.bible.com/bible/114/REV.22.NKJV)
 
-
 ## The Name of the Lord (Feb 1)
 
 God reveals Himself through His Name, Yahweh—it carries divine power, protection, and presence for those who call upon it.
@@ -302,7 +302,7 @@ The Name above every name—at the name of Yeshua, every knee will bow.
 
 ## Sabbath as a Sign (Feb 8)
 
-The Sabbath is God's eternal sign of creation, covenant, and rest—from the seventh day in Eden to entering His rest in Messiah.
+The Sabbath is God's eternal sign of creation, covenant, and rest.
 
 ### Day 1
 
@@ -360,10 +360,129 @@ A Psalm for the Sabbath day—praise and thanksgiving.
 
  [Read Psalm 92](https://www.bible.com/bible/114/PSA.92.NKJV)
 
+## The Fear of the Lord and Holiness (Feb 15)
 
-## Fasting, Prayer, and Spiritual Power (Feb 15)
+To fear the Lord is the beginning of wisdom; holiness is the call to be set apart as He is holy.
 
-Fasting and prayer humble the soul, sharpen spiritual vision, and align God's people with His purposes.
+### Day 1
+
+Be holy—laws for holiness and justice in daily life.
+
+>"You shall be holy, for I the LORD your God am holy." (Leviticus 19:2)
+
+ [Read Leviticus 19](https://www.bible.com/bible/114/LEV.19.NKJV)
+
+### Day 2
+
+Wisdom calls to the humble; fear of the Lord brings insight.
+
+>"The fear of the LORD is the beginning of wisdom, and the knowledge of the Holy One is understanding." (Proverbs 9:10)
+
+ [Read Proverbs 9](https://www.bible.com/bible/114/PRO.9.NKJV)
+
+### Day 3
+
+Isaiah's commission: Holy, Holy, Holy is the Lord Almighty.
+
+>"Holy, holy, holy is the LORD of hosts; the whole earth is full of His glory!" (Isaiah 6:3)
+
+ [Read Isaiah 6](https://www.bible.com/bible/114/ISA.6.NKJV)
+
+### Day 4
+
+Holiness perfects reverence; godly sorrow leads to repentance.
+
+>"Therefore, having these promises, beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God." (2 Corinthians 7:1)
+
+ [Read 2 Corinthians 7](https://www.bible.com/bible/114/2CO.7.NKJV)
+
+### Day 5
+
+Be holy as God is holy; live in hope through Messiah's redemption.
+
+>"But as He who called you is holy, you also be holy in all your conduct, because it is written, 'Be holy, for I am holy.'" (1 Peter 1:15-16)
+
+ [Read 1 Peter 1](https://www.bible.com/bible/114/1PE.1.NKJV)
+
+### Day 6
+
+The fear of the Lord is the beginning of wisdom and praise.
+
+>"The fear of the LORD is the beginning of wisdom; a good understanding have all those who do His commandments. His praise endures forever." (Psalm 111:10)
+
+ [Read Psalm 111](https://www.bible.com/bible/114/PSA.111.NKJV)
+
+### Day 7
+
+The righteous walk in integrity; wisdom guards against sin.
+
+>"The fear of the LORD prolongs days, but the years of the wicked will be shortened." (Proverbs 10:27)
+
+ [Read Proverbs 10](https://www.bible.com/bible/114/PRO.10.NKJV)
+
+## Prayer (Feb 22)
+
+Prayer is the breath of relationship.
+
+### Day 1
+
+Humble repentance and prayer: turning to the Lord brings restoration.
+
+>"If My people who are called by My name will humble themselves, and pray and seek My face, and turn from their wicked ways, then I will hear from heaven, and will forgive their sin and heal their land." (2 Chronicles 7:14)
+
+ [Read 2 Chronicles 7](https://www.bible.com/bible/114/2CH.7.NKJV)
+
+### Day 2
+
+The Lord is my Shepherd: comfort and provision.
+
+>"The LORD is my shepherd; I shall not want. He makes me to lie down in green pastures; He leads me beside the still waters." (Psalm 23:1-2)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 3
+
+Trust in the Lord with all your heart: wisdom brings life.
+
+>"Trust in the LORD with all your heart, and lean not on your own understanding; in all your ways acknowledge Him, and He shall direct your paths." (Proverbs 3:5-6)
+
+ [Read Proverbs 3](https://www.bible.com/bible/114/PRO.3.NKJV)
+
+### Day 4
+
+Kingdom priorities: prayer, fasting, and trust in God.
+
+>"But you, when you pray, go into your room, and when you have shut your door, pray to your Father who is in the secret place; and your Father who sees in secret will reward you openly." (Matthew 6:6)
+
+ [Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
+
+### Day 5
+
+Teach us to pray: the Lord's Prayer.
+
+>"So He said to them, 'When you pray, say: Our Father in heaven, hallowed be Your name. Your kingdom come. Your will be done on earth as it is in heaven.'" (Luke 11:2)
+
+ [Read Luke 11](https://www.bible.com/bible/114/LUK.11.NKJV)
+
+### Day 6
+
+The High Priestly Prayer: Yeshua prays for all believers.
+
+>"I do not pray for these alone, but also for those who will believe in Me through their word; that they all may be one, as You, Father, are in Me, and I in You." (John 17:20-21)
+
+ [Read John 17](https://www.bible.com/bible/114/JHN.17.NKJV)
+
+### Day 7
+
+Pray in all circumstances; the prayer of faith brings healing.
+
+>"The effective, fervent prayer of a righteous man avails much." (James 5:16)
+
+ [Read James 5](https://www.bible.com/bible/114/JAS.5.NKJV)
+
+## Fasting (Mar 1)
+
+Fasting to humble the soul, sharpen spiritual vision, and align God's people with His purposes.
 
 ### Day 1
 
@@ -420,3 +539,243 @@ The church fasted and prayed before sending—mission and discernment flow from 
 >"As they ministered to the Lord and fasted, the Holy Spirit said, 'Now separate to Me Barnabas and Saul for the work to which I have called them.'" (Acts 13:2)
 
  [Read Acts 13](https://www.bible.com/bible/114/ACT.13.NKJV)
+
+## The Blessed Life (Mar 8)
+
+Blessing follows those who hear and keep the way to life.
+
+### Day 1
+
+Blessings for obedience.
+
+>"Now it shall come to pass, if you diligently obey the voice of the LORD your God, to observe carefully all His commandments which I command you today, that the LORD your God will set you high above all nations of the earth." (Deuteronomy 28:1)
+
+ [Read Deuteronomy 28](https://www.bible.com/bible/114/DEU.28.NKJV)
+
+### Day 2
+
+Blessed are the blameless who walk in His ways.
+
+>"Blessed are the undefiled in the way, who walk in the law of the LORD! Blessed are those who keep His testimonies, who seek Him with the whole heart!" (Psalm 119:1-2)
+
+ [Read Psalm 119](https://www.bible.com/bible/114/PSA.119.NKJV)
+
+### Day 3
+
+The Lord's blessing rests on those who walk wisely.
+
+>"The blessing of the LORD makes one rich, and He adds no sorrow with it." (Proverbs 10:22)
+
+ [Read Proverbs 10](https://www.bible.com/bible/114/PRO.10.NKJV)
+
+### Day 4
+
+The Beatitudes: the blessed life in the kingdom.
+
+>"Blessed are the poor in spirit, for theirs is the kingdom of heaven." (Matthew 5:3)
+
+ [Read Matthew 5](https://www.bible.com/bible/114/MAT.5.NKJV)
+
+### Day 5
+
+Blessed are those who hear and keep.
+
+>"But He said, 'More than that, blessed are those who hear the word of God and keep it!'" (Luke 11:28)
+
+ [Read Luke 11](https://www.bible.com/bible/114/LUK.11.NKJV)
+
+### Day 6
+
+Doers of the word.
+
+>"But be doers of the word, and not hearers only, deceiving yourselves." (James 1:22)
+
+ [Read James 1](https://www.bible.com/bible/114/JAS.1.NKJV)
+
+### Day 7
+
+Blessed are those who do His commandments.
+
+>"Blessed are those who do His commandments, that they may have the right to the tree of life, and may enter through the gates into the city." (Revelation 22:14)
+
+ [Read Revelation 22](https://www.bible.com/bible/114/REV.22.NKJV)
+
+## God's Perfect Timing (Mar 15)
+
+God works at the set time—Isaac, the Messiah, the harvest. We wait on the Lord and trust His schedule.
+
+### Day 1
+
+Isaac born at the set time.
+
+>"For Sarah conceived and bore Abraham a son in his old age, at the set time of which God had spoken to him." (Genesis 21:2)
+
+ [Read Genesis 21](https://www.bible.com/bible/114/GEN.21.NKJV)
+
+### Day 2
+
+For such a time as this: courage in God's providence.
+
+>"For if you remain completely silent at this time, relief and deliverance will arise for the Jews from another place, but you and your father's house will perish. Yet who knows whether you have come to the kingdom for such a time as this?" (Esther 4:14)
+
+ [Read Esther 4](https://www.bible.com/bible/114/EST.4.NKJV)
+
+### Day 3
+
+My soul waits for the Lord.
+
+>"I wait for the LORD, my soul waits, and in His word I do hope. My soul waits for the Lord more than those who watch for the morning—yes, more than those who watch for the morning." (Psalm 130:5-6)
+
+ [Read Psalm 130](https://www.bible.com/bible/114/PSA.130.NKJV)
+
+### Day 4
+
+The vision awaits its time.
+
+>"For the vision is yet for an appointed time; but at the end it will speak, and it will not lie. Though it tarries, wait for it; because it will surely come, it will not tarry." (Habakkuk 2:3)
+
+ [Read Habakkuk 2](https://www.bible.com/bible/114/HAB.2.NKJV)
+
+### Day 5
+
+Simeon and Anna wait—and see the Consolation of Israel.
+
+>"And behold, there was a man in Jerusalem whose name was Simeon, and this man was just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him." (Luke 2:25)
+
+ [Read Luke 2](https://www.bible.com/bible/114/LUK.2.NKJV)
+
+### Day 6
+
+The resurrection of Lazarus.
+
+>"Jesus said to her, 'I am the resurrection and the life. He who believes in Me, though he may die, he shall live.'" (John 11:25)
+
+ [Read John 11](https://www.bible.com/bible/114/JHN.11.NKJV)
+
+### Day 7
+
+The farmer waits for the precious fruit of the earth.
+
+>"Therefore be patient, brethren, until the coming of the Lord. See how the farmer waits for the precious fruit of the earth, waiting patiently for it until it receives the early and latter rain." (James 5:7)
+
+ [Read James 5](https://www.bible.com/bible/114/JAS.5.NKJV)
+
+## The Return of the Messiah (Mar 22)
+
+The Son of Man will come in glory to receive the kingdom and judge the living and the dead.
+
+### Day 1
+
+He comes to judge the earth.
+
+>"For He is coming to judge the earth. He shall judge the world with righteousness, and the peoples with His truth." (Psalm 96:13)
+
+ [Read Psalm 96](https://www.bible.com/bible/114/PSA.96.NKJV)
+
+### Day 2
+
+The fear of the Lord is a fountain of life.
+
+>"The fear of the LORD is a fountain of life, to turn one away from the snares of death." (Proverbs 14:27)
+
+ [Read Proverbs 14](https://www.bible.com/bible/114/PRO.14.NKJV)
+
+### Day 3
+
+Son of Man receives the kingdom.
+
+>"I was watching in the night visions, and behold, One like the Son of Man, coming with the clouds of heaven! He came to the Ancient of Days, and they brought Him near before Him. Then to Him was given dominion and glory and a kingdom." (Daniel 7:13-14)
+
+ [Read Daniel 7](https://www.bible.com/bible/114/DAN.7.NKJV)
+
+### Day 4
+
+Signs of His coming.
+
+>"And then the sign of the Son of Man will appear in heaven, and then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of heaven with power and great glory." (Matthew 24:30)
+
+ [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
+
+### Day 5
+
+The Lord's descent—the dead in Messiah rise first.
+
+>"For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first. Then we who are alive and remain shall be caught up together with them in the clouds to meet the Lord in the air." (1 Thessalonians 4:16-17)
+
+ [Read 1 Thessalonians 4](https://www.bible.com/bible/114/1TH.4.NKJV)
+
+### Day 6
+
+The day of the Lord.
+
+>"But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be burned up." (2 Peter 3:10)
+
+ [Read 2 Peter 3](https://www.bible.com/bible/114/2PE.3.NKJV)
+
+### Day 7
+
+The great white throne judgment.
+
+>"Then I saw a great white throne and Him who sat on it, from whose face the earth and the heaven fled away. And there was found no place for them. And I saw the dead, small and great, standing before God." (Revelation 20:11-12)
+
+ [Read Revelation 20](https://www.bible.com/bible/114/REV.20.NKJV)
+
+## Passover and the Spring Feasts (Mar 29)
+
+God's appointed times—Passover, Firstfruits, and Shavuot—declare redemption from Egypt and fulfillment in Messiah.
+
+### Day 1
+
+The first Passover: God's deliverance from Egypt.
+
+>"Now the blood shall be a sign for you on the houses where you are. And when I see the blood, I will pass over you; and the plague shall not be on you to destroy you when I strike the land of Egypt." (Exodus 12:13)
+
+ [Read Exodus 12](https://www.bible.com/bible/114/EXO.12.NKJV)
+
+### Day 2
+
+God's appointed feasts: Passover, Firstfruits, and Shavuot.
+
+>"These are the feasts of the LORD, holy convocations which you shall proclaim at their appointed times." (Leviticus 23:4)
+
+ [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
+
+### Day 3
+
+Instructions for celebrating Passover and God's guidance by cloud.
+
+>"According to the command of the LORD the children of Israel would journey, and according to the command of the LORD they would camp." (Numbers 9:18)
+
+ [Read Numbers 9](https://www.bible.com/bible/114/NUM.9.NKJV)
+
+### Day 4
+
+Yeshua celebrates Passover and establishes the New Covenant.
+
+>"With fervent desire I have desired to eat this Passover with you before I suffer; for I say to you, I will no longer eat of it until it is fulfilled in the kingdom of God." (Luke 22:15-16)
+
+ [Read Luke 22](https://www.bible.com/bible/114/LUK.22.NKJV)
+
+### Day 5
+
+Remember Messiah's sacrifice through the Lord's Supper.
+
+>"For as often as you eat this bread and drink this cup, you proclaim the Lord's death until He comes." (1 Corinthians 11:26)
+
+ [Read 1 Corinthians 11](https://www.bible.com/bible/114/1CO.11.NKJV)
+
+### Day 6
+
+Messiah enters the heavenly sanctuary, securing eternal redemption.
+
+>"Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once for all, having obtained eternal redemption." (Hebrews 9:12)
+
+ [Read Hebrews 9](https://www.bible.com/bible/114/HEB.9.NKJV)
+
+### Day 7
+
+Messianic prophecy of suffering, fulfilled in Yeshua's crucifixion.
+
+>"My God, My God, why have You forsaken Me? Why are You so far from helping Me, and from the words of My groaning?" (Psalm 22:1)
+
+ [Read Psalm 22](https://www.bible.com/bible/114/PSA.22.NKJV)

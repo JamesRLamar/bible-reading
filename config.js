@@ -13,7 +13,7 @@ module.exports = {
   // Format: 'YYYY-MM-DD': 'filename-without-extension'
   anchors: {
     // Spring Feasts - week leading up to Passover 2026 (April 1-2 at sunset)
-    '2026-03-29': '15-passover-and-the-spring-feasts',
+    '2026-03-29': '8-passover-and-the-spring-feasts',
     
     // Fall Feasts - week leading up to Feast of Trumpets 2026 (Sept 11-12 at sunset)  
     '2026-09-06': '39-trumpets-and-the-fall-feasts',
