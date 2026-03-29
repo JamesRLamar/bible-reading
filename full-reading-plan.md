@@ -660,65 +660,65 @@ The farmer waits for the precious fruit of the earth.
 
  [Read James 5](https://www.bible.com/bible/114/JAS.5.NKJV)
 
-## The Return of the Messiah (Mar 22)
+## Fruit of the Spirit: Love (Mar 22)
 
-The Son of Man will come in glory to receive the kingdom and judge the living and the dead.
+Love is the first fruit, teaching us to love God wholly and our neighbor as ourselves.
 
 ### Day 1
 
-He comes to judge the earth.
+God commands love for neighbor as a core covenant ethic.
 
->"For He is coming to judge the earth. He shall judge the world with righteousness, and the peoples with His truth." (Psalm 96:13)
+>"You shall love your neighbor as yourself: I am the LORD." (Leviticus 19:18)
 
- [Read Psalm 96](https://www.bible.com/bible/114/PSA.96.NKJV)
+ [Read Leviticus 19](https://www.bible.com/bible/114/LEV.19.NKJV)
 
 ### Day 2
 
-The fear of the Lord is a fountain of life.
+Love for God is wholehearted devotion in covenant life.
 
->"The fear of the LORD is a fountain of life, to turn one away from the snares of death." (Proverbs 14:27)
+>"You shall love the LORD your God with all your heart, with all your soul, and with all your strength." (Deuteronomy 6:5)
 
- [Read Proverbs 14](https://www.bible.com/bible/114/PRO.14.NKJV)
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)
 
 ### Day 3
 
-Son of Man receives the kingdom.
+Love chooses humility over strife and covers offenses.
 
->"I was watching in the night visions, and behold, One like the Son of Man, coming with the clouds of heaven! He came to the Ancient of Days, and they brought Him near before Him. Then to Him was given dominion and glory and a kingdom." (Daniel 7:13-14)
+>"Hatred stirs up strife, but love covers all sins." (Proverbs 10:12)
 
- [Read Daniel 7](https://www.bible.com/bible/114/DAN.7.NKJV)
+ [Read Proverbs 10](https://www.bible.com/bible/114/PRO.10.NKJV)
 
 ### Day 4
 
-Signs of His coming.
+Yeshua gives a new commandment: love as He loved us.
 
->"And then the sign of the Son of Man will appear in heaven, and then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of heaven with power and great glory." (Matthew 24:30)
+>"A new commandment I give to you, that you love one another; as I have loved you, that you also love one another." (John 13:34)
 
- [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
+ [Read John 13](https://www.bible.com/bible/114/JHN.13.NKJV)
 
 ### Day 5
 
-The Lord's descent—the dead in Messiah rise first.
+Love fulfills the law and does no harm to neighbor.
 
->"For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first. Then we who are alive and remain shall be caught up together with them in the clouds to meet the Lord in the air." (1 Thessalonians 4:16-17)
+>"Love does no harm to a neighbor; therefore love is the fulfillment of the law." (Romans 13:10)
 
- [Read 1 Thessalonians 4](https://www.bible.com/bible/114/1TH.4.NKJV)
+ [Read Romans 13](https://www.bible.com/bible/114/ROM.13.NKJV)
 
 ### Day 6
 
-The day of the Lord.
+Love is patient, kind, and enduring above every gift.
 
->"But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be burned up." (2 Peter 3:10)
+>"And now abide faith, hope, love, these three; but the greatest of these is love." (1 Corinthians 13:13)
 
- [Read 2 Peter 3](https://www.bible.com/bible/114/2PE.3.NKJV)
+ [Read 1 Corinthians 13](https://www.bible.com/bible/114/1CO.13.NKJV)
 
 ### Day 7
 
-The great white throne judgment.
+We love because God first loved us and sent His Son.
 
->"Then I saw a great white throne and Him who sat on it, from whose face the earth and the heaven fled away. And there was found no place for them. And I saw the dead, small and great, standing before God." (Revelation 20:11-12)
+>"Beloved, if God so loved us, we also ought to love one another." (1 John 4:11)
 
- [Read Revelation 20](https://www.bible.com/bible/114/REV.20.NKJV)
+ [Read 1 John 4](https://www.bible.com/bible/114/1JN.4.NKJV)
 
 ## Passover and the Spring Feasts (Mar 29)
 
@@ -780,365 +780,307 @@ Messianic prophecy of suffering, fulfilled in Yeshua's crucifixion.
 
  [Read Psalm 22](https://www.bible.com/bible/114/PSA.22.NKJV)
 
-## Week 14 Placeholder (Apr 5)
+## Fruit of the Spirit: Joy (Apr 5)
 
-Placeholder readings for this week while the full theme is being finalized.
+Joy in the Spirit is rooted in God's salvation, presence, and faithfulness.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Joy marks worship in God's appointed times.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And you shall rejoice before the LORD your God, you and your son and your daughter." (Deuteronomy 16:11)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 16](https://www.bible.com/bible/114/DEU.16.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+The joy of the Lord strengthens God's people.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Do not sorrow, for the joy of the LORD is your strength." (Nehemiah 8:10)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Nehemiah 8](https://www.bible.com/bible/114/NEH.8.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+In God's presence there is fullness of joy.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"You will show me the path of life; in Your presence is fullness of joy." (Psalm 16:11)
+
+ [Read Psalm 16](https://www.bible.com/bible/114/PSA.16.NKJV)
+
+### Day 4
+
+God clothes His people with the garment of praise instead of heaviness.
+
+>"I will greatly rejoice in the LORD, my soul shall be joyful in my God." (Isaiah 61:10)
+
+ [Read Isaiah 61](https://www.bible.com/bible/114/ISA.61.NKJV)
+
+### Day 5
+
+Yeshua's joy remains in us and makes our joy full.
+
+>"These things I have spoken to you, that My joy may remain in you, and that your joy may be full." (John 15:11)
+
+ [Read John 15](https://www.bible.com/bible/114/JHN.15.NKJV)
+
+### Day 6
+
+The kingdom of God is righteousness, peace, and joy in the Spirit.
+
+>"For the kingdom of God is not eating and drinking, but righteousness and peace and joy in the Holy Spirit." (Romans 14:17)
+
+ [Read Romans 14](https://www.bible.com/bible/114/ROM.14.NKJV)
+
+### Day 7
+
+We rejoice in the Lord always.
+
+>"Rejoice in the Lord always. Again I will say, rejoice!" (Philippians 4:4)
+
+ [Read Philippians 4](https://www.bible.com/bible/114/PHP.4.NKJV)
+
+## Fruit of the Spirit: Peace (Apr 12)
+
+The Spirit forms peace in us as we trust God and walk in reconciliation.
+
+### Day 1
+
+God puts His name on His people with a blessing of peace.
+
+>"The LORD lift up His countenance upon you, and give you peace." (Numbers 6:26)
+
+ [Read Numbers 6](https://www.bible.com/bible/114/NUM.6.NKJV)
+
+### Day 2
+
+The Lord grants peace to those who trust Him.
+
+>"I will both lie down in peace, and sleep; for You alone, O LORD, make me dwell in safety." (Psalm 4:8)
+
+ [Read Psalm 4](https://www.bible.com/bible/114/PSA.4.NKJV)
+
+### Day 3
+
+Perfect peace is given to the mind fixed on God.
+
+>"You will keep him in perfect peace, whose mind is stayed on You, because he trusts in You." (Isaiah 26:3)
+
+ [Read Isaiah 26](https://www.bible.com/bible/114/ISA.26.NKJV)
+
+### Day 4
+
+Yeshua blesses the peacemakers as sons of God.
+
+>"Blessed are the peacemakers, for they shall be called sons of God." (Matthew 5:9)
+
+ [Read Matthew 5](https://www.bible.com/bible/114/MAT.5.NKJV)
+
+### Day 5
+
+Yeshua gives His peace, not as the world gives.
+
+>"Peace I leave with you, My peace I give to you; not as the world gives do I give to you." (John 14:27)
+
+ [Read John 14](https://www.bible.com/bible/114/JHN.14.NKJV)
+
+### Day 6
+
+Justified by faith, we have peace with God through Messiah.
+
+>"Therefore, having been justified by faith, we have peace with God through our Lord Jesus Christ." (Romans 5:1)
+
+ [Read Romans 5](https://www.bible.com/bible/114/ROM.5.NKJV)
+
+### Day 7
+
+Let the peace of Messiah rule in your hearts.
+
+>"And let the peace of God rule in your hearts, to which also you were called in one body; and be thankful." (Colossians 3:15)
+
+ [Read Colossians 3](https://www.bible.com/bible/114/COL.3.NKJV)
+
+## Fruit of the Spirit: Patience (Apr 19)
+
+The Spirit teaches us steadfast endurance as we wait on the Lord and love others.
+
+### Day 1
+
+Patience is learned by trusting the Lord's timing.
+
+>"Rest in the LORD, and wait patiently for Him." (Psalm 37:7)
+
+ [Read Psalm 37](https://www.bible.com/bible/114/PSA.37.NKJV)
+
+### Day 2
+
+A patient spirit is wiser than pride and anger.
+
+>"The patient in spirit is better than the proud in spirit." (Ecclesiastes 7:8)
+
+ [Read Ecclesiastes 7](https://www.bible.com/bible/114/ECC.7.NKJV)
+
+### Day 3
+
+Waiting in silence for the Lord is good.
+
+>"It is good that one should hope and wait quietly for the salvation of the LORD." (Lamentations 3:26)
+
+ [Read Lamentations 3](https://www.bible.com/bible/114/LAM.3.NKJV)
+
+### Day 4
+
+Yeshua calls for endurance that bears fruit.
+
+>"But the ones that fell on the good ground are those who, having heard the word with a noble and good heart, keep it and bear fruit with patience." (Luke 8:15)
+
+ [Read Luke 8](https://www.bible.com/bible/114/LUK.8.NKJV)
+
+### Day 5
+
+Love is marked first by patience.
+
+>"Love suffers long and is kind; love does not envy; love does not parade itself, is not puffed up." (1 Corinthians 13:4)
+
+ [Read 1 Corinthians 13](https://www.bible.com/bible/114/1CO.13.NKJV)
+
+### Day 6
+
+Simeon waits faithfully for the promised Messiah.
+
+>"And behold, there was a man in Jerusalem whose name was Simeon, and this man was just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him." (Luke 2:25)
+
+ [Read Luke 2](https://www.bible.com/bible/114/LUK.2.NKJV)
+
+### Day 7
+
+The prophets and Job model patient endurance.
+
+>"Indeed we count them blessed who endure. You have heard of the perseverance of Job and seen the end intended by the Lord." (James 5:11)
+
+ [Read James 5](https://www.bible.com/bible/114/JAS.5.NKJV)
+
+## Fruit of the Spirit: Kindness and Goodness (Apr 26)
+
+Kindness and goodness together reflect God's character and form practical love in His people.
+
+### Day 1
+
+The Lord reveals the greatness of His goodness.
+
+>"And He said, 'I will make all My goodness pass before you, and I will proclaim the name of the LORD before you.'" (Exodus 33:19)
+
+ [Read Exodus 33](https://www.bible.com/bible/114/EXO.33.NKJV)
+
+### Day 2
+
+David chooses covenant kindness toward Jonathan's house.
+
+>"So David said, 'Is there still anyone who is left of the house of Saul, that I may show him kindness for Jonathan's sake?'" (2 Samuel 9:1)
+
+ [Read 2 Samuel 9](https://www.bible.com/bible/114/2SA.9.NKJV)
+
+### Day 3
+
+God's goodness and mercy pursue us all our days.
+
+>"Surely goodness and mercy shall follow me all the days of my life; and I will dwell in the house of the LORD forever." (Psalm 23:6)
 
  [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Yeshua calls us to reflect the Father's kindness.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"But love your enemies, do good, and lend, hoping for nothing in return; and your reward will be great, and you will be sons of the Most High. For He is kind to the unthankful and evil." (Luke 6:35)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Luke 6](https://www.bible.com/bible/114/LUK.6.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+The nations show unusual kindness to God's servants.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"And the natives showed us unusual kindness; for they kindled a fire and made us all welcome, because of the rain that was falling and because of the cold." (Acts 28:2)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Acts 28](https://www.bible.com/bible/114/ACT.28.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Believers are encouraged as people full of goodness.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Now I myself am confident concerning you, my brethren, that you also are full of goodness, filled with all knowledge, able also to admonish one another." (Romans 15:14)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Romans 15](https://www.bible.com/bible/114/ROM.15.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The church is called to be kind, forgiving, and tenderhearted.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"And be kind to one another, tenderhearted, forgiving one another, even as God in Christ forgave you." (Ephesians 4:32)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Ephesians 4](https://www.bible.com/bible/114/EPH.4.NKJV)
 
-## Week 15 Placeholder (Apr 12)
 
-Placeholder readings for this week while the full theme is being finalized.
+
+## Fruit of the Spirit: Faithfulness and Gentleness (May 10)
+
+Faithfulness and gentleness express steady devotion to God with humble strength toward others.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The Lord is faithful and keeps covenant mercy.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Therefore know that the LORD your God, He is God, the faithful God who keeps covenant and mercy for a thousand generations with those who love Him and keep His commandments." (Deuteronomy 7:9)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 16 Placeholder (Apr 19)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 7](https://www.bible.com/bible/114/DEU.7.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+God preserves the line of David for the sake of his faithfulness.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"However I will not take the whole kingdom out of his hand, because I have made him ruler all the days of his life for the sake of My servant David, whom I chose because he kept My commandments and My statutes." (1 Kings 11:34)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 17 Placeholder (Apr 26)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read 1 Kings 11](https://www.bible.com/bible/114/1KI.11.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+The meek are called to trust the Lord and inherit the land.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"But the meek shall inherit the earth, and shall delight themselves in the abundance of peace." (Psalm 37:11)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 18 Placeholder (May 3)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 37](https://www.bible.com/bible/114/PSA.37.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+God calls us to justice, mercy, and humble walking.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"He has shown you, O man, what is good; and what does the LORD require of you but to do justly, to love mercy, and to walk humbly with your God?" (Micah 6:8)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 19 Placeholder (May 10)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Micah 6](https://www.bible.com/bible/114/MIC.6.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Yeshua is gentle and lowly, and gives rest to the soul.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Take My yoke upon you and learn from Me, for I am gentle and lowly in heart, and you will find rest for your souls." (Matthew 11:29)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Matthew 11](https://www.bible.com/bible/114/MAT.11.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Faithfulness is required of those entrusted with God's work.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Moreover it is required in stewards that one be found faithful." (1 Corinthians 4:2)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read 1 Corinthians 4](https://www.bible.com/bible/114/1CO.4.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The Lord's servant leads with gentleness and patient instruction.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"And a servant of the Lord must not quarrel but be gentle to all, able to teach, patient, in humility correcting those who are in opposition." (2 Timothy 2:24-25)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 2 Timothy 2](https://www.bible.com/bible/114/2TI.2.NKJV)
 
 ## Preparation for Pentecost (May 17)
 
@@ -1200,7 +1142,67 @@ The same Spirit gives diverse gifts for the good of the body.
 
  [Read 1 Corinthians 12](https://www.bible.com/bible/114/1CO.12.NKJV)
 
-## The Gift of Prophecy (May 24)
+## Fruit of the Spirit: Self-Control (May 24)
+
+Self-control is Spirit-formed strength that resists sin and trains us for holy living.
+
+### Day 1
+
+Joseph practices self-control by fleeing temptation.
+
+>"So it was, when she spoke to Joseph day by day, that he did not heed her, to lie with her, or to be with her." (Genesis 39:10)
+
+ [Read Genesis 39](https://www.bible.com/bible/114/GEN.39.NKJV)
+
+### Day 2
+
+David restrains himself and refuses to kill Saul in the cave.
+
+>"David said to his men, 'The LORD forbid that I should do this thing to my master, the LORD's anointed, to stretch out my hand against him, seeing he is the anointed of the LORD.'" (1 Samuel 24:6)
+
+ [Read 1 Samuel 24](https://www.bible.com/bible/114/1SA.24.NKJV)
+
+### Day 3
+
+Without self-control, a person is exposed and vulnerable.
+
+>"Whoever has no rule over his own spirit is like a city broken down, without walls." (Proverbs 25:28)
+
+ [Read Proverbs 25](https://www.bible.com/bible/114/PRO.25.NKJV)
+
+### Day 4
+
+Daniel keeps his disciplined habit of prayer three times a day.
+
+>"Now when Daniel knew that the writing was signed, he went home. And in his upper room, with his windows open toward Jerusalem, he knelt down on his knees three times that day, and prayed and gave thanks before his God, as was his custom since early days." (Daniel 6:10)
+
+ [Read Daniel 6](https://www.bible.com/bible/114/DAN.6.NKJV)
+
+### Day 5
+
+Yeshua regularly withdrew to solitary places to pray.
+
+>"So He Himself often withdrew into the wilderness and prayed." (Luke 5:16)
+
+ [Read Luke 5](https://www.bible.com/bible/114/LUK.5.NKJV)
+
+### Day 6
+
+Self-control is part of the apostolic call to repentance.
+
+>"Now as he reasoned about righteousness, self-control, and the judgment to come, Felix was afraid and answered, 'Go away for now.'" (Acts 24:25)
+
+ [Read Acts 24](https://www.bible.com/bible/114/ACT.24.NKJV)
+
+### Day 7
+
+We add self-control as we grow in godly character.
+
+>"But also for this very reason, giving all diligence, add to your faith virtue, to virtue knowledge, to knowledge self-control." (2 Peter 1:5-6)
+
+ [Read 2 Peter 1](https://www.bible.com/bible/114/2PE.1.NKJV)
+
+## The Gift of Prophecy (May 31)
 
 God pours out His Spirit so His people can hear, speak, and be strengthened through prophetic witness.
 
@@ -1260,7 +1262,67 @@ The church must test prophecy, hold fast what is good, and never despise it.
 
  [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
 
-## Week 22 Placeholder (May 31)
+## Dreams and Visions (Jun 7)
+
+God reveals His purposes through dreams and visions and calls His people to faithful response.
+
+### Day 1
+
+Jacob sees heaven opened and God confirms covenant promise.
+
+>"Then he dreamed, and behold, a ladder was set up on the earth, and its top reached to heaven; and there the angels of God were ascending and descending on it." (Genesis 28:12)
+
+ [Read Genesis 28](https://www.bible.com/bible/114/GEN.28.NKJV)
+
+### Day 2
+
+Joseph receives dreams that foreshadow God's plan.
+
+>"Now Joseph had a dream, and he told it to his brothers; and they hated him even more." (Genesis 37:5)
+
+ [Read Genesis 37](https://www.bible.com/bible/114/GEN.37.NKJV)
+
+### Day 3
+
+The Lord says He makes Himself known through visions and dreams.
+
+>"Then He said, 'Hear now My words: If there is a prophet among you, I, the LORD, make Myself known to him in a vision; I speak to him in a dream.'" (Numbers 12:6)
+
+ [Read Numbers 12](https://www.bible.com/bible/114/NUM.12.NKJV)
+
+### Day 4
+
+God gives understanding of mysteries shown in visions.
+
+>"But there is a God in heaven who reveals secrets, and He has made known to King Nebuchadnezzar what will be in the latter days." (Daniel 2:28)
+
+ [Read Daniel 2](https://www.bible.com/bible/114/DAN.2.NKJV)
+
+### Day 5
+
+The vision must be written plainly so others may run with it.
+
+>"Then the LORD answered me and said: 'Write the vision and make it plain on tablets, that he may run who reads it.'" (Habakkuk 2:2)
+
+ [Read Habakkuk 2](https://www.bible.com/bible/114/HAB.2.NKJV)
+
+### Day 6
+
+Joseph is warned in a dream to protect the child Messiah.
+
+>"Now when they had departed, behold, an angel of the Lord appeared to Joseph in a dream, saying, 'Arise, take the young Child and His mother, flee to Egypt, and stay there until I bring you word.'" (Matthew 2:13)
+
+ [Read Matthew 2](https://www.bible.com/bible/114/MAT.2.NKJV)
+
+### Day 7
+
+Peter sees a vision that prepares the gospel to reach the nations.
+
+>"And saw heaven opened and an object like a great sheet bound at the four corners, descending to him and let down to the earth." (Acts 10:11)
+
+ [Read Acts 10](https://www.bible.com/bible/114/ACT.10.NKJV)
+
+## Week 23 Placeholder (Jun 14)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1320,7 +1382,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 23 Placeholder (Jun 7)
+## Week 24 Placeholder (Jun 21)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1380,7 +1442,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 24 Placeholder (Jun 14)
+## Week 25 Placeholder (Jun 28)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1440,7 +1502,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 25 Placeholder (Jun 21)
+## Week 26 Placeholder (Jul 5)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1500,7 +1562,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 26 Placeholder (Jun 28)
+## Week 27 Placeholder (Jul 12)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1560,7 +1622,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 27 Placeholder (Jul 5)
+## Week 28 Placeholder (Jul 19)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1620,7 +1682,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 28 Placeholder (Jul 12)
+## Week 29 Placeholder (Jul 26)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1680,7 +1742,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 29 Placeholder (Jul 19)
+## Week 30 Placeholder (Aug 2)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1740,7 +1802,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 30 Placeholder (Jul 26)
+## Week 31 Placeholder (Aug 9)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1800,7 +1862,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 31 Placeholder (Aug 2)
+## Week 32 Placeholder (Aug 16)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -1860,127 +1922,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 32 Placeholder (Aug 9)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 33 Placeholder (Aug 16)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 34 Placeholder (Aug 23)
+## Week 33 Placeholder (Aug 23)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2042,63 +1984,63 @@ Hold fast to the Lord while this week's theme is being developed.
 
 ## Preparation for Trumpets (Aug 30)
 
-The week before Trumpets calls us to remembrance, repentance, and readiness for the King's appearing.
+The week before Trumpets fixes our hope on Messiah's appearing at the trumpet and the Day of the Lord.
 
 ### Day 1
 
-Trumpets begins as a memorial and holy rest before the Lord.
+Jericho falls as priests sound the trumpets before the Lord.
 
->"In the seventh month, on the first day of the month, you shall have a sabbath-rest, a memorial of blowing of trumpets, a holy convocation." (Leviticus 23:24)
+>"And the seven priests bearing seven trumpets of rams' horns before the ark of the LORD went on continually and blew with the trumpets." (Joshua 6:13)
 
- [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
+ [Read Joshua 6](https://www.bible.com/bible/114/JOS.6.NKJV)
 
 ### Day 2
 
-The appointed offerings teach devotion and obedience in sacred time.
+The great trumpet gathers God's people to worship.
 
->"On the first day of the seventh month you shall have a holy convocation." (Numbers 29:1)
+>"So it shall be in that day: The great trumpet will be blown; they will come, who are about to perish in the land of Assyria, and they who are outcasts in the land of Egypt, and shall worship the LORD in the holy mount at Jerusalem." (Isaiah 27:13)
 
- [Read Numbers 29](https://www.bible.com/bible/114/NUM.29.NKJV)
+ [Read Isaiah 27](https://www.bible.com/bible/114/ISA.27.NKJV)
 
 ### Day 3
 
-God's people are called to rejoice with the sound of the trumpet.
+The Son of Man sends His angels with a great sound of a trumpet.
 
->"Blow the trumpet at the time of the New Moon, at the full moon, on our solemn feast day." (Psalm 81:3)
-
- [Read Psalm 81](https://www.bible.com/bible/114/PSA.81.NKJV)
-
-### Day 4
-
-The Lord invites repentance and wholehearted return.
-
->"Seek the LORD while He may be found, call upon Him while He is near." (Isaiah 55:6)
-
- [Read Isaiah 55](https://www.bible.com/bible/114/ISA.55.NKJV)
-
-### Day 5
-
-We stay watchful, discerning the season of His coming.
-
->"Watch therefore, for you do not know what hour your Lord is coming." (Matthew 24:42)
+>"And He will send His angels with a great sound of a trumpet, and they will gather together His elect from the four winds, from one end of heaven to the other." (Matthew 24:31)
 
  [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
 
+### Day 4
+
+At the last trumpet, the dead are raised and we are changed.
+
+>"In a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised incorruptible, and we shall be changed." (1 Corinthians 15:52)
+
+ [Read 1 Corinthians 15](https://www.bible.com/bible/114/1CO.15.NKJV)
+
+### Day 5
+
+The Lord descends with a shout and the trumpet of God.
+
+>"For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first." (1 Thessalonians 4:16)
+
+ [Read 1 Thessalonians 4](https://www.bible.com/bible/114/1TH.4.NKJV)
+
 ### Day 6
 
-The day of the Lord comes unexpectedly, so we remain sober and ready.
+The Day of the Lord comes with a great noise.
 
->"For you yourselves know perfectly that the day of the Lord so comes as a thief in the night." (1 Thessalonians 5:2)
+>"But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat." (2 Peter 3:10)
 
- [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
+ [Read 2 Peter 3](https://www.bible.com/bible/114/2PE.3.NKJV)
 
 ### Day 7
 
-The kingdom is proclaimed as the final trumpet sounds.
+Heaven prepares the sequence of the seven trumpets.
 
->"Then the seventh angel sounded: And there were loud voices in heaven, saying, 'The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!'" (Revelation 11:15)
+>"And I saw the seven angels who stand before God, and to them were given seven trumpets." (Revelation 8:2)
 
- [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
+ [Read Revelation 8](https://www.bible.com/bible/114/REV.8.NKJV)
 
 ## Trumpets and the Fall Feasts (Sep 6)
 
@@ -2160,7 +2102,7 @@ The seventh trumpet proclaims the reign of Messiah.
 
  [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
 
-## Week 36 Placeholder (Sep 13)
+## Week 34 Placeholder (Sep 13)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2220,7 +2162,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 37 Placeholder (Sep 20)
+## Week 36 Placeholder (Sep 20)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2280,7 +2222,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 38 Placeholder (Sep 27)
+## Week 37 Placeholder (Sep 27)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2340,7 +2282,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 40 Placeholder (Oct 4)
+## Week 38 Placeholder (Oct 4)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2400,7 +2342,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 41 Placeholder (Oct 11)
+## Week 40 Placeholder (Oct 11)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2460,7 +2402,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 42 Placeholder (Oct 18)
+## Week 41 Placeholder (Oct 18)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2520,7 +2462,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 43 Placeholder (Oct 25)
+## Week 42 Placeholder (Oct 25)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2580,7 +2522,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 44 Placeholder (Nov 1)
+## Week 43 Placeholder (Nov 1)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2640,7 +2582,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 45 Placeholder (Nov 8)
+## Week 44 Placeholder (Nov 8)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2700,7 +2642,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 46 Placeholder (Nov 15)
+## Week 45 Placeholder (Nov 15)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2760,7 +2702,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 47 Placeholder (Nov 22)
+## Week 46 Placeholder (Nov 22)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2820,7 +2762,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 48 Placeholder (Nov 29)
+## Week 47 Placeholder (Nov 29)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2880,7 +2822,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 49 Placeholder (Dec 6)
+## Week 48 Placeholder (Dec 6)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -2940,7 +2882,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 50 Placeholder (Dec 13)
+## Week 49 Placeholder (Dec 13)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -3000,7 +2942,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 51 Placeholder (Dec 20)
+## Week 50 Placeholder (Dec 20)
 
 Placeholder readings for this week while the full theme is being finalized.
 
@@ -3060,7 +3002,7 @@ Hold fast to the Lord while this week's theme is being developed.
 
  [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
 
-## Week 52 Placeholder (Dec 27)
+## Week 51 Placeholder (Dec 27)
 
 Placeholder readings for this week while the full theme is being finalized.
 

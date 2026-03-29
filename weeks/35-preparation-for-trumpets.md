@@ -1,59 +1,59 @@
 ## Preparation for Trumpets
 
-The week before Trumpets calls us to remembrance, repentance, and readiness for the King's appearing.
+The week before Trumpets fixes our hope on Messiah's appearing at the trumpet and the Day of the Lord.
 
 ### Day 1
 
-Trumpets begins as a memorial and holy rest before the Lord.
+Jericho falls as priests sound the trumpets before the Lord.
 
->"In the seventh month, on the first day of the month, you shall have a sabbath-rest, a memorial of blowing of trumpets, a holy convocation." (Leviticus 23:24)
+>"And the seven priests bearing seven trumpets of rams' horns before the ark of the LORD went on continually and blew with the trumpets." (Joshua 6:13)
 
- [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
+ [Read Joshua 6](https://www.bible.com/bible/114/JOS.6.NKJV)
 
 ### Day 2
 
-The appointed offerings teach devotion and obedience in sacred time.
+The great trumpet gathers God's people to worship.
 
->"On the first day of the seventh month you shall have a holy convocation." (Numbers 29:1)
+>"So it shall be in that day: The great trumpet will be blown; they will come, who are about to perish in the land of Assyria, and they who are outcasts in the land of Egypt, and shall worship the LORD in the holy mount at Jerusalem." (Isaiah 27:13)
 
- [Read Numbers 29](https://www.bible.com/bible/114/NUM.29.NKJV)
+ [Read Isaiah 27](https://www.bible.com/bible/114/ISA.27.NKJV)
 
 ### Day 3
 
-God's people are called to rejoice with the sound of the trumpet.
+The Son of Man sends His angels with a great sound of a trumpet.
 
->"Blow the trumpet at the time of the New Moon, at the full moon, on our solemn feast day." (Psalm 81:3)
-
- [Read Psalm 81](https://www.bible.com/bible/114/PSA.81.NKJV)
-
-### Day 4
-
-The Lord invites repentance and wholehearted return.
-
->"Seek the LORD while He may be found, call upon Him while He is near." (Isaiah 55:6)
-
- [Read Isaiah 55](https://www.bible.com/bible/114/ISA.55.NKJV)
-
-### Day 5
-
-We stay watchful, discerning the season of His coming.
-
->"Watch therefore, for you do not know what hour your Lord is coming." (Matthew 24:42)
+>"And He will send His angels with a great sound of a trumpet, and they will gather together His elect from the four winds, from one end of heaven to the other." (Matthew 24:31)
 
  [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
 
+### Day 4
+
+At the last trumpet, the dead are raised and we are changed.
+
+>"In a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised incorruptible, and we shall be changed." (1 Corinthians 15:52)
+
+ [Read 1 Corinthians 15](https://www.bible.com/bible/114/1CO.15.NKJV)
+
+### Day 5
+
+The Lord descends with a shout and the trumpet of God.
+
+>"For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first." (1 Thessalonians 4:16)
+
+ [Read 1 Thessalonians 4](https://www.bible.com/bible/114/1TH.4.NKJV)
+
 ### Day 6
 
-The day of the Lord comes unexpectedly, so we remain sober and ready.
+The Day of the Lord comes with a great noise.
 
->"For you yourselves know perfectly that the day of the Lord so comes as a thief in the night." (1 Thessalonians 5:2)
+>"But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat." (2 Peter 3:10)
 
- [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
+ [Read 2 Peter 3](https://www.bible.com/bible/114/2PE.3.NKJV)
 
 ### Day 7
 
-The kingdom is proclaimed as the final trumpet sounds.
+Heaven prepares the sequence of the seven trumpets.
 
->"Then the seventh angel sounded: And there were loud voices in heaven, saying, 'The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!'" (Revelation 11:15)
+>"And I saw the seven angels who stand before God, and to them were given seven trumpets." (Revelation 8:2)
 
- [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
+ [Read Revelation 8](https://www.bible.com/bible/114/REV.8.NKJV)
