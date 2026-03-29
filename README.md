@@ -1,11 +1,18 @@
 # bible-reading
 
+## 2026 scaffold status
+
+- Placeholder week files now exist through week 52 so the full-year compile is no longer short.
+- Dedicated preparation weeks were added for:
+  - `20-preparation-for-pentecost` (anchored to `2026-05-17`, the week before Pentecost on May 24)
+  - `35-preparation-for-trumpets` (anchored to `2026-08-30`, the week before Trumpets week)
+- Feast-week anchors in `config.js` now include Passover week, pre-Pentecost week, pre-Trumpets week, and Trumpets week.
+
 
 
 ## ideas
 
  old testament echoes int he NT 
-Fasting week after trumpets week
 A week for every fruit of the spirit, love, joy, peace, patience, kindness, goodness, self-control
 A week on prophecy preceeding pentecost. Stories like Samuel being called, the seventy elders, Saul prophesying over David, the Anna? From the gospels, Simeon? Mary, Bezalel Filled with the Spirit
 

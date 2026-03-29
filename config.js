@@ -14,8 +14,14 @@ module.exports = {
   anchors: {
     // Spring Feasts - week leading up to Passover 2026 (April 1-2 at sunset)
     '2026-03-29': '8-passover-and-the-spring-feasts',
+
+    // Preparation week right before Pentecost 2026 (May 24)
+    '2026-05-17': '20-preparation-for-pentecost',
     
-    // Fall Feasts - week leading up to Feast of Trumpets 2026 (Sept 11-12 at sunset)  
+    // Preparation week right before Feast of Trumpets 2026 (Sept 11-12 at sunset)
+    '2026-08-30': '35-preparation-for-trumpets',
+
+    // Fall Feasts - week leading up to Feast of Trumpets 2026 (Sept 11-12 at sunset)
     '2026-09-06': '39-trumpets-and-the-fall-feasts',
   },
   

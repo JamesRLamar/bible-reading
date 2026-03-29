@@ -779,3 +779,2343 @@ Messianic prophecy of suffering, fulfilled in Yeshua's crucifixion.
 >"My God, My God, why have You forsaken Me? Why are You so far from helping Me, and from the words of My groaning?" (Psalm 22:1)
 
  [Read Psalm 22](https://www.bible.com/bible/114/PSA.22.NKJV)
+
+## Week 14 Placeholder (Apr 5)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 15 Placeholder (Apr 12)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 16 Placeholder (Apr 19)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 17 Placeholder (Apr 26)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 18 Placeholder (May 3)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 19 Placeholder (May 10)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Preparation for Pentecost (May 17)
+
+The week before Pentecost prepares us for the outpouring of God's Spirit, the baptism of the Spirit, and the gifts He gives His people.
+
+### Day 1
+
+God places His Spirit on many to equip the community.
+
+>"Then the LORD came down in the cloud, and spoke to him, and took of the Spirit that was upon him, and placed the same upon the seventy elders." (Numbers 11:25)
+
+ [Read Numbers 11](https://www.bible.com/bible/114/NUM.11.NKJV)
+
+### Day 2
+
+The Lord promises to pour out His Spirit like water on dry ground.
+
+>"For I will pour water on him who is thirsty, and floods on the dry ground; I will pour My Spirit on your descendants, and My blessing on your offspring." (Isaiah 44:3)
+
+ [Read Isaiah 44](https://www.bible.com/bible/114/ISA.44.NKJV)
+
+### Day 3
+
+God promises a new heart and His Spirit within His people.
+
+>"I will give you a new heart and put a new spirit within you; I will take the heart of stone out of your flesh and give you a heart of flesh. I will put My Spirit within you and cause you to walk in My statutes." (Ezekiel 36:26-27)
+
+ [Read Ezekiel 36](https://www.bible.com/bible/114/EZK.36.NKJV)
+
+### Day 4
+
+The promise of the Spirit is for all flesh.
+
+>"And it shall come to pass afterward that I will pour out My Spirit on all flesh." (Joel 2:28)
+
+ [Read Joel 2](https://www.bible.com/bible/114/JOL.2.NKJV)
+
+### Day 5
+
+Yeshua promises living water, speaking of the Spirit.
+
+>"He who believes in Me, as the Scripture has said, out of his heart will flow rivers of living water." (John 7:38)
+
+ [Read John 7](https://www.bible.com/bible/114/JHN.7.NKJV)
+
+### Day 6
+
+Yeshua declares the coming baptism with the Holy Spirit.
+
+>"For John truly baptized with water, but you shall be baptized with the Holy Spirit not many days from now." (Acts 1:5)
+
+ [Read Acts 1](https://www.bible.com/bible/114/ACT.1.NKJV)
+
+### Day 7
+
+The same Spirit gives diverse gifts for the good of the body.
+
+>"There are diversities of gifts, but the same Spirit. There are differences of ministries, but the same Lord. And there are diversities of activities, but it is the same God who works all in all." (1 Corinthians 12:4-6)
+
+ [Read 1 Corinthians 12](https://www.bible.com/bible/114/1CO.12.NKJV)
+
+## The Gift of Prophecy (May 24)
+
+God pours out His Spirit so His people can hear, speak, and be strengthened through prophetic witness.
+
+### Day 1
+
+The Spirit fills Bezalel with wisdom for sacred service.
+
+>"And I have filled him with the Spirit of God, in wisdom, in understanding, in knowledge, and in all manner of workmanship." (Exodus 31:3)
+
+ [Read Exodus 31](https://www.bible.com/bible/114/EXO.31.NKJV)
+
+### Day 2
+
+Samuel learns to hear and answer the voice of the Lord.
+
+>"Now the LORD came and stood and called as at other times, 'Samuel! Samuel!' And Samuel answered, 'Speak, for Your servant hears.'" (1 Samuel 3:10)
+
+ [Read 1 Samuel 3](https://www.bible.com/bible/114/1SA.3.NKJV)
+
+### Day 3
+
+The Lord promises that sons and daughters will prophesy.
+
+>"And it shall come to pass afterward that I will pour out My Spirit on all flesh; your sons and your daughters shall prophesy." (Joel 2:28)
+
+ [Read Joel 2](https://www.bible.com/bible/114/JOL.2.NKJV)
+
+### Day 4
+
+Mary proclaims God's mercy and covenant faithfulness.
+
+>"And Mary said: 'My soul magnifies the Lord, and my spirit has rejoiced in God my Savior.'" (Luke 1:46-47)
+
+ [Read Luke 1](https://www.bible.com/bible/114/LUK.1.NKJV)
+
+### Day 5
+
+At Pentecost the Spirit is poured out and prophecy begins to flow.
+
+>"'And it shall come to pass in the last days, says God, that I will pour out of My Spirit on all flesh; your sons and your daughters shall prophesy.'" (Acts 2:17)
+
+ [Read Acts 2](https://www.bible.com/bible/114/ACT.2.NKJV)
+
+### Day 6
+
+Believers are told to pursue love and earnestly desire prophecy.
+
+>"Pursue love, and desire spiritual gifts, but especially that you may prophesy." (1 Corinthians 14:1)
+
+ [Read 1 Corinthians 14](https://www.bible.com/bible/114/1CO.14.NKJV)
+
+### Day 7
+
+The church must test prophecy, hold fast what is good, and never despise it.
+
+>"Do not quench the Spirit. Do not despise prophecies. Test all things; hold fast what is good." (1 Thessalonians 5:19-21)
+
+ [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
+
+## Week 22 Placeholder (May 31)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 23 Placeholder (Jun 7)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 24 Placeholder (Jun 14)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 25 Placeholder (Jun 21)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 26 Placeholder (Jun 28)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 27 Placeholder (Jul 5)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 28 Placeholder (Jul 12)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 29 Placeholder (Jul 19)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 30 Placeholder (Jul 26)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 31 Placeholder (Aug 2)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 32 Placeholder (Aug 9)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 33 Placeholder (Aug 16)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 34 Placeholder (Aug 23)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Preparation for Trumpets (Aug 30)
+
+The week before Trumpets calls us to remembrance, repentance, and readiness for the King's appearing.
+
+### Day 1
+
+Trumpets begins as a memorial and holy rest before the Lord.
+
+>"In the seventh month, on the first day of the month, you shall have a sabbath-rest, a memorial of blowing of trumpets, a holy convocation." (Leviticus 23:24)
+
+ [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
+
+### Day 2
+
+The appointed offerings teach devotion and obedience in sacred time.
+
+>"On the first day of the seventh month you shall have a holy convocation." (Numbers 29:1)
+
+ [Read Numbers 29](https://www.bible.com/bible/114/NUM.29.NKJV)
+
+### Day 3
+
+God's people are called to rejoice with the sound of the trumpet.
+
+>"Blow the trumpet at the time of the New Moon, at the full moon, on our solemn feast day." (Psalm 81:3)
+
+ [Read Psalm 81](https://www.bible.com/bible/114/PSA.81.NKJV)
+
+### Day 4
+
+The Lord invites repentance and wholehearted return.
+
+>"Seek the LORD while He may be found, call upon Him while He is near." (Isaiah 55:6)
+
+ [Read Isaiah 55](https://www.bible.com/bible/114/ISA.55.NKJV)
+
+### Day 5
+
+We stay watchful, discerning the season of His coming.
+
+>"Watch therefore, for you do not know what hour your Lord is coming." (Matthew 24:42)
+
+ [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
+
+### Day 6
+
+The day of the Lord comes unexpectedly, so we remain sober and ready.
+
+>"For you yourselves know perfectly that the day of the Lord so comes as a thief in the night." (1 Thessalonians 5:2)
+
+ [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
+
+### Day 7
+
+The kingdom is proclaimed as the final trumpet sounds.
+
+>"Then the seventh angel sounded: And there were loud voices in heaven, saying, 'The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!'" (Revelation 11:15)
+
+ [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
+
+## Trumpets and the Fall Feasts (Sep 6)
+
+The fall appointed times call us to repentance, reverence, and hope in the coming King.
+
+### Day 1
+
+The Lord appoints Trumpets, Atonement, and Tabernacles as holy convocations.
+
+>"In the seventh month, on the first day of the month, you shall have a sabbath-rest, a memorial of blowing of trumpets, a holy convocation." (Leviticus 23:24)
+
+ [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
+
+### Day 2
+
+The offerings of the seventh month train God's people in worshipful obedience.
+
+>"On the first day of the seventh month you shall have a holy convocation. You shall do no customary work. For you it is a day of blowing the trumpets." (Numbers 29:1)
+
+ [Read Numbers 29](https://www.bible.com/bible/114/NUM.29.NKJV)
+
+### Day 3
+
+A great trumpet signals the gathering of God's people.
+
+>"So it shall be in that day: The great trumpet will be blown; they will come, who are about to perish in the land of Assyria, and they who are outcasts in the land of Egypt, and shall worship the LORD in the holy mount at Jerusalem." (Isaiah 27:13)
+
+ [Read Isaiah 27](https://www.bible.com/bible/114/ISA.27.NKJV)
+
+### Day 4
+
+The nations will worship the Lord at Jerusalem in the age to come.
+
+>"And it shall come to pass that everyone who is left of all the nations which came against Jerusalem shall go up from year to year to worship the King, the LORD of hosts, and to keep the Feast of Tabernacles." (Zechariah 14:16)
+
+ [Read Zechariah 14](https://www.bible.com/bible/114/ZEC.14.NKJV)
+
+### Day 5
+
+Yeshua tells His disciples to watch for His coming.
+
+>"Watch therefore, for you do not know what hour your Lord is coming." (Matthew 24:42)
+
+ [Read Matthew 24](https://www.bible.com/bible/114/MAT.24.NKJV)
+
+### Day 6
+
+The trumpet of God announces resurrection hope.
+
+>"For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first." (1 Thessalonians 4:16)
+
+ [Read 1 Thessalonians 4](https://www.bible.com/bible/114/1TH.4.NKJV)
+
+### Day 7
+
+The seventh trumpet proclaims the reign of Messiah.
+
+>"Then the seventh angel sounded: And there were loud voices in heaven, saying, 'The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!'" (Revelation 11:15)
+
+ [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
+
+## Week 36 Placeholder (Sep 13)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 37 Placeholder (Sep 20)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 38 Placeholder (Sep 27)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 40 Placeholder (Oct 4)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 41 Placeholder (Oct 11)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 42 Placeholder (Oct 18)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 43 Placeholder (Oct 25)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 44 Placeholder (Nov 1)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 45 Placeholder (Nov 8)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 46 Placeholder (Nov 15)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 47 Placeholder (Nov 22)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 48 Placeholder (Nov 29)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 49 Placeholder (Dec 6)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 50 Placeholder (Dec 13)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 51 Placeholder (Dec 20)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+
+## Week 52 Placeholder (Dec 27)
+
+Placeholder readings for this week while the full theme is being finalized.
+
+### Day 1
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+
+ [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+
+### Day 2
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+
+ [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+
+### Day 3
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+
+ [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+
+### Day 4
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+
+ [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+
+### Day 5
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"Be still, and know that I am God." (Psalm 46:10)
+
+ [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+
+### Day 6
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+
+ [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+
+### Day 7
+
+Hold fast to the Lord while this week's theme is being developed.
+
+>"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+
+ [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
