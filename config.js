@@ -9,16 +9,17 @@ module.exports = {
   startDate: '2026-01-04', // First Sunday of 2026
   
   // Anchor specific weeks to calendar dates
-  // The week containing this date will use the specified reading
+  // The week containing this date will use the specified reading.
+  // Prep-week rule: use the Sunday before the Saturday immediately preceding the holy day.
   // Format: 'YYYY-MM-DD': 'filename-without-extension'
   anchors: {
-    // Spring Feasts - week leading up to Passover 2026 (April 1-2 at sunset)
-    '2026-03-29': '8-passover-and-the-spring-feasts',
+    // Passover prep week for teaching on the prior Saturday (holy day: April 1-2 at sunset)
+    '2026-03-22': '8-passover-and-the-spring-feasts',
 
     // Preparation week right before Pentecost 2026 (May 24)
     '2026-05-17': '20-preparation-for-pentecost',
     
-    // Preparation week right before Feast of Trumpets 2026 (Sept 11-12 at sunset)
+    // Trumpets prep week for teaching on the prior Saturday (holy day: Sept 11-12 at sunset)
     '2026-08-30': '35-preparation-for-trumpets',
 
     // Fall Feasts - week leading up to Feast of Trumpets 2026 (Sept 11-12 at sunset)
