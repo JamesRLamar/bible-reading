@@ -1,4 +1,4 @@
-<!-- Bible Reading Plan 2026 | Start: 2026-01-04 | Regenerate: node compile-weeks.js -->
+<!-- Bible Reading Plan 2026 | Start: 2026-01-04 | Regenerate: node compile-weeks.js (also builds full-reading-plan.pdf) -->
 
 ## The Mark of God (Jan 4)
 

@@ -1,5 +1,6 @@
 const fs = require('fs');
 const path = require('path');
+const { spawnSync } = require('child_process');
 
 const weeksDir = path.join(__dirname, 'weeks');
 const outputFile = path.join(__dirname, 'full-reading-plan.md');
@@ -114,7 +115,7 @@ const compiledContent = weekOrder.map((filename, index) => {
 }).join('\n\n');
 
 // Add header with config info (as a comment at the top)
-const header = `<!-- Bible Reading Plan ${config.startDate.slice(0, 4)} | Start: ${config.startDate} | Regenerate: node compile-weeks.js -->\n\n`;
+const header = `<!-- Bible Reading Plan ${config.startDate.slice(0, 4)} | Start: ${config.startDate} | Regenerate: node compile-weeks.js (also builds full-reading-plan.pdf) -->\n\n`;
 
 // Write the compiled document
 fs.writeFileSync(outputFile, header + compiledContent + '\n');
@@ -122,3 +123,9 @@ fs.writeFileSync(outputFile, header + compiledContent + '\n');
 console.log(`\n✓ Compiled ${weekOrder.length} weeks into ${outputFile}`);
 console.log(`  Start date: ${config.startDate}`);
 console.log(`  Anchored weeks: ${Object.keys(config.anchors || {}).length}`);
+
+const pdfScript = path.join(__dirname, 'generate-pdf.js');
+const pdfResult = spawnSync(process.execPath, [pdfScript], { stdio: 'inherit' });
+if (pdfResult.status !== 0) {
+  console.warn('⚠ PDF generation skipped or failed. Run: node generate-pdf.js');
+}
