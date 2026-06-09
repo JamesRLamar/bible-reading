@@ -1322,125 +1322,125 @@ Peter sees a vision that prepares the gospel to reach the nations.
 
  [Read Acts 10](https://www.bible.com/bible/114/ACT.10.NKJV)
 
-## Week 23 Placeholder (Jun 14)
+## Treasure and Generosity: Where Your Heart Is (Jun 14)
 
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 24 Placeholder (Jun 21)
-
-Placeholder readings for this week while the full theme is being finalized.
+Scripture teaches that where we store treasure reveals where our heart truly belongs—and generous living flows from devotion to God.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The biblical tithes—for Levites, feasts, and care for the poor.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"You shall truly tithe all the increase of your grain that the field produces year by year." (Deuteronomy 14:22)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 14](https://www.bible.com/bible/114/DEU.14.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+The generous soul will be made rich, and he who waters will also be watered.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"There is one who scatters, yet increases more; and there is one who withholds more than is right, but it leads to poverty. The generous soul will be made rich, and he who waters will also be watered himself." (Proverbs 11:24-25)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Proverbs 11](https://www.bible.com/bible/114/PRO.11.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Return to the Lord with tithes and offerings—in their proper covenant context.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Will a man rob God? Yet you have robbed Me! But you say, 'In what way have we robbed You?' In tithes and offerings." (Malachi 3:8)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Malachi 3](https://www.bible.com/bible/114/MAL.3.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Do not lay up treasures on earth—where your treasure is, there your heart will be.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal; but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also." (Matthew 6:19-21)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Sell what you have and give alms—provide purses that do not fail in heaven.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Provide yourselves money bags which do not grow old, a treasure in the heavens that does not fail, where no thief approaches nor moth destroys. For where your treasure is, there your heart will be also." (Luke 12:33-34)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Luke 12](https://www.bible.com/bible/114/LUK.12.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+The early believers shared all things—there was no poor among them.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Nor was there anyone among them who lacked; for all who were possessors of lands or houses sold them, and brought the proceeds of the things that were sold." (Acts 4:34)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Acts 4](https://www.bible.com/bible/114/ACT.4.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The grace of giving—Christ became poor so that we might become rich.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"For you know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you through His poverty might become rich." (2 Corinthians 8:9)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 2 Corinthians 8](https://www.bible.com/bible/114/2CO.8.NKJV)
+
+## The Shema: Total Devotion to God (Jun 21)
+
+From Moses to Messiah, Scripture calls God's people to wholehearted love—knowing Him, obeying Him, and loving one another as He loves us.
+
+### Day 1
+
+Hear, O Israel—the LORD is one; love Him with all your heart, soul, and strength.
+
+>"Hear, O Israel: The LORD our God, the LORD is one! You shall love the LORD your God with all your heart, with all your soul, and with all your strength." (Deuteronomy 6:4-5)
+
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)
+
+### Day 2
+
+Love and obey with all your heart—bind God's words as signs on hand and forehead.
+
+>"Therefore you shall love the LORD your God, and keep His charge, His statutes, His judgments, and His commandments always." (Deuteronomy 11:1)
+
+ [Read Deuteronomy 11](https://www.bible.com/bible/114/DEU.11.NKJV)
+
+### Day 3
+
+My soul thirsts for You—early will I seek You in a dry and weary land.
+
+>"O God, You are my God; early will I seek You; my soul thirsts for You; my flesh longs for You in a dry and thirsty land where there is no water." (Psalm 63:1)
+
+ [Read Psalm 63](https://www.bible.com/bible/114/PSA.63.NKJV)
+
+### Day 4
+
+Yeshua affirms the Greatest Commandment—love the Lord with all your heart, soul, and mind.
+
+>"Jesus said to him, 'You shall love the LORD your God with all your heart, with all your soul, and with all your mind.' This is the first and great commandment." (Matthew 22:37-38)
+
+ [Read Matthew 22](https://www.bible.com/bible/114/MAT.22.NKJV)
+
+### Day 5
+
+The scribe who answered wisely—not far from the kingdom of God.
+
+>"So the scribe said to Him, 'Well said, Teacher. You have spoken the truth, for there is one God, and there is no other but He. And to love Him with all the heart, with all the understanding, with all the soul, and with all the strength, and to love one's neighbor as oneself, is more than all the whole burnt offerings and sacrifices.'" (Mark 12:32-33)
+
+ [Read Mark 12](https://www.bible.com/bible/114/MRK.12.NKJV)
+
+### Day 6
+
+Eternal life is knowing God—the only true God, and Jesus Christ whom He sent.
+
+>"And this is eternal life, that they may know You, the only true God, and Jesus Christ whom You have sent." (John 17:3)
+
+ [Read John 17](https://www.bible.com/bible/114/JHN.17.NKJV)
+
+### Day 7
+
+Love one another, for God is love—and everyone who loves is born of God and knows God.
+
+>"Beloved, let us love one another, for love is of God; and everyone who loves is born of God and knows God." (1 John 4:7)
+
+ [Read 1 John 4](https://www.bible.com/bible/114/1JN.4.NKJV)
 
 ## Week 25 Placeholder (Jun 28)
 
