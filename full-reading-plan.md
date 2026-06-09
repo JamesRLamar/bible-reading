@@ -1020,9 +1020,7 @@ The church is called to be kind, forgiving, and tenderhearted.
 
  [Read Ephesians 4](https://www.bible.com/bible/114/EPH.4.NKJV)
 
-
-
-## Fruit of the Spirit: Faithfulness and Gentleness (May 10)
+## Fruit of the Spirit: Faithfulness and Gentleness (May 3)
 
 Faithfulness and gentleness express steady devotion to God with humble strength toward others.
 
@@ -1081,6 +1079,66 @@ The Lord's servant leads with gentleness and patient instruction.
 >"And a servant of the Lord must not quarrel but be gentle to all, able to teach, patient, in humility correcting those who are in opposition." (2 Timothy 2:24-25)
 
  [Read 2 Timothy 2](https://www.bible.com/bible/114/2TI.2.NKJV)
+
+## Fruit of the Spirit: Self-Control (May 10)
+
+Self-control is Spirit-formed strength that resists sin and trains us for holy living.
+
+### Day 1
+
+Joseph practices self-control by fleeing temptation.
+
+>"So it was, when she spoke to Joseph day by day, that he did not heed her, to lie with her, or to be with her." (Genesis 39:10)
+
+ [Read Genesis 39](https://www.bible.com/bible/114/GEN.39.NKJV)
+
+### Day 2
+
+David restrains himself and refuses to kill Saul in the cave.
+
+>"David said to his men, 'The LORD forbid that I should do this thing to my master, the LORD's anointed, to stretch out my hand against him, seeing he is the anointed of the LORD.'" (1 Samuel 24:6)
+
+ [Read 1 Samuel 24](https://www.bible.com/bible/114/1SA.24.NKJV)
+
+### Day 3
+
+Without self-control, a person is exposed and vulnerable.
+
+>"Whoever has no rule over his own spirit is like a city broken down, without walls." (Proverbs 25:28)
+
+ [Read Proverbs 25](https://www.bible.com/bible/114/PRO.25.NKJV)
+
+### Day 4
+
+Daniel keeps his disciplined habit of prayer three times a day.
+
+>"Now when Daniel knew that the writing was signed, he went home. And in his upper room, with his windows open toward Jerusalem, he knelt down on his knees three times that day, and prayed and gave thanks before his God, as was his custom since early days." (Daniel 6:10)
+
+ [Read Daniel 6](https://www.bible.com/bible/114/DAN.6.NKJV)
+
+### Day 5
+
+Yeshua regularly withdrew to solitary places to pray.
+
+>"So He Himself often withdrew into the wilderness and prayed." (Luke 5:16)
+
+ [Read Luke 5](https://www.bible.com/bible/114/LUK.5.NKJV)
+
+### Day 6
+
+Self-control is part of the apostolic call to repentance.
+
+>"Now as he reasoned about righteousness, self-control, and the judgment to come, Felix was afraid and answered, 'Go away for now.'" (Acts 24:25)
+
+ [Read Acts 24](https://www.bible.com/bible/114/ACT.24.NKJV)
+
+### Day 7
+
+We add self-control as we grow in godly character.
+
+>"But also for this very reason, giving all diligence, add to your faith virtue, to virtue knowledge, to knowledge self-control." (2 Peter 1:5-6)
+
+ [Read 2 Peter 1](https://www.bible.com/bible/114/2PE.1.NKJV)
 
 ## Preparation for Pentecost (May 17)
 
@@ -1142,67 +1200,7 @@ The same Spirit gives diverse gifts for the good of the body.
 
  [Read 1 Corinthians 12](https://www.bible.com/bible/114/1CO.12.NKJV)
 
-## Fruit of the Spirit: Self-Control (May 24)
-
-Self-control is Spirit-formed strength that resists sin and trains us for holy living.
-
-### Day 1
-
-Joseph practices self-control by fleeing temptation.
-
->"So it was, when she spoke to Joseph day by day, that he did not heed her, to lie with her, or to be with her." (Genesis 39:10)
-
- [Read Genesis 39](https://www.bible.com/bible/114/GEN.39.NKJV)
-
-### Day 2
-
-David restrains himself and refuses to kill Saul in the cave.
-
->"David said to his men, 'The LORD forbid that I should do this thing to my master, the LORD's anointed, to stretch out my hand against him, seeing he is the anointed of the LORD.'" (1 Samuel 24:6)
-
- [Read 1 Samuel 24](https://www.bible.com/bible/114/1SA.24.NKJV)
-
-### Day 3
-
-Without self-control, a person is exposed and vulnerable.
-
->"Whoever has no rule over his own spirit is like a city broken down, without walls." (Proverbs 25:28)
-
- [Read Proverbs 25](https://www.bible.com/bible/114/PRO.25.NKJV)
-
-### Day 4
-
-Daniel keeps his disciplined habit of prayer three times a day.
-
->"Now when Daniel knew that the writing was signed, he went home. And in his upper room, with his windows open toward Jerusalem, he knelt down on his knees three times that day, and prayed and gave thanks before his God, as was his custom since early days." (Daniel 6:10)
-
- [Read Daniel 6](https://www.bible.com/bible/114/DAN.6.NKJV)
-
-### Day 5
-
-Yeshua regularly withdrew to solitary places to pray.
-
->"So He Himself often withdrew into the wilderness and prayed." (Luke 5:16)
-
- [Read Luke 5](https://www.bible.com/bible/114/LUK.5.NKJV)
-
-### Day 6
-
-Self-control is part of the apostolic call to repentance.
-
->"Now as he reasoned about righteousness, self-control, and the judgment to come, Felix was afraid and answered, 'Go away for now.'" (Acts 24:25)
-
- [Read Acts 24](https://www.bible.com/bible/114/ACT.24.NKJV)
-
-### Day 7
-
-We add self-control as we grow in godly character.
-
->"But also for this very reason, giving all diligence, add to your faith virtue, to virtue knowledge, to knowledge self-control." (2 Peter 1:5-6)
-
- [Read 2 Peter 1](https://www.bible.com/bible/114/2PE.1.NKJV)
-
-## The Gift of Prophecy (May 31)
+## The Gift of Prophecy (May 24)
 
 God pours out His Spirit so His people can hear, speak, and be strengthened through prophetic witness.
 
@@ -1262,7 +1260,7 @@ The church must test prophecy, hold fast what is good, and never despise it.
 
  [Read 1 Thessalonians 5](https://www.bible.com/bible/114/1TH.5.NKJV)
 
-## Dreams and Visions (Jun 7)
+## Dreams and Visions (May 31)
 
 God reveals His purposes through dreams and visions and calls His people to faithful response.
 
@@ -1322,7 +1320,127 @@ Peter sees a vision that prepares the gospel to reach the nations.
 
  [Read Acts 10](https://www.bible.com/bible/114/ACT.10.NKJV)
 
-## Treasure and Generosity: Where Your Heart Is (Jun 14)
+## The Great Commission: Light to the Nations (Jun 7)
+
+From covenant devotion to outward mission—God's people carry His light to every nation.
+
+### Day 1
+
+The Servant is given as a light to the Gentiles and salvation to the ends of the earth.
+
+>"It is too small a thing that You should be My Servant to raise up the tribes of Jacob, and to restore the preserved ones of Israel; I will also give You as a light to the Gentiles, that You should be My salvation to the ends of the earth." (Isaiah 49:6)
+
+ [Read Isaiah 49](https://www.bible.com/bible/114/ISA.49.NKJV)
+
+### Day 2
+
+Declare His glory among the nations—worship belongs to the God who made the heavens.
+
+>"Oh, give thanks to the LORD! Call upon His name; make known His deeds among the peoples. Declare His glory among the nations, His wonders among all peoples." (Psalm 96:1-3)
+
+ [Read Psalm 96](https://www.bible.com/bible/114/PSA.96.NKJV)
+
+### Day 3
+
+Go and make disciples of all nations—baptizing and teaching them to observe all things.
+
+>"Go therefore and make disciples of all the nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all things that I have commanded you." (Matthew 28:19-20)
+
+ [Read Matthew 28](https://www.bible.com/bible/114/MAT.28.NKJV)
+
+### Day 4
+
+You shall receive power when the Holy Spirit has come upon you—and be witnesses to the ends of the earth.
+
+>"But you shall receive power when the Holy Spirit has come upon you; and you shall be witnesses to Me in Jerusalem, and in all Judea and Samaria, and to the end of the earth." (Acts 1:8)
+
+ [Read Acts 1](https://www.bible.com/bible/114/ACT.1.NKJV)
+
+### Day 5
+
+The Holy Spirit sets apart Barnabas and Saul for the work to which He has called them.
+
+>"As they ministered to the Lord and fasted, the Holy Spirit said, 'Now separate to Me Barnabas and Saul for the work to which I have called them.'" (Acts 13:2)
+
+ [Read Acts 13](https://www.bible.com/bible/114/ACT.13.NKJV)
+
+### Day 6
+
+How shall they hear without a preacher? Faith comes by hearing the word of God.
+
+>"How then shall they call on Him in whom they have not believed? And how shall they believe in Him of whom they have not heard? And how shall they hear without a preacher?" (Romans 10:14)
+
+ [Read Romans 10](https://www.bible.com/bible/114/ROM.10.NKJV)
+
+### Day 7
+
+A chosen generation proclaiming the praises of Him who called you out of darkness into His marvelous light.
+
+>"But you are a chosen generation, a royal priesthood, a holy nation, His own special people, that you may proclaim the praises of Him who called you out of darkness into His marvelous light." (1 Peter 2:9)
+
+ [Read 1 Peter 2](https://www.bible.com/bible/114/1PE.2.NKJV)
+
+## Discipleship: Take Up Your Cross (Jun 14)
+
+Following Yeshua costs everything—and gains everything.
+
+### Day 1
+
+Cling to the LORD your God—do not follow other gods or listen to those who would turn you away.
+
+>"You shall walk after the LORD your God and fear Him, and keep His commandments and obey His voice; you shall serve Him and hold fast to Him." (Deuteronomy 13:4)
+
+ [Read Deuteronomy 13](https://www.bible.com/bible/114/DEU.13.NKJV)
+
+### Day 2
+
+Sent out with nothing but His authority—take up your cross and follow Him.
+
+>"He who does not take his cross and follow after Me is not worthy of Me. He who finds his life will lose it, and he who loses his life for My sake will find it." (Matthew 10:38-39)
+
+ [Read Matthew 10](https://www.bible.com/bible/114/MAT.10.NKJV)
+
+### Day 3
+
+Deny yourself, take up your cross, and follow Me—whoever loses his life for My sake will find it.
+
+>"Then Jesus said to His disciples, 'If anyone desires to come after Me, let him deny himself, and take up his cross, and follow Me. For whoever desires to save his life will lose it, but whoever loses his life for My sake will find it.'" (Matthew 16:24-25)
+
+ [Read Matthew 16](https://www.bible.com/bible/114/MAT.16.NKJV)
+
+### Day 4
+
+Count the cost—whoever does not bear his cross and come after Me cannot be My disciple.
+
+>"And whoever does not bear his cross and come after Me cannot be My disciple." (Luke 14:27)
+
+ [Read Luke 14](https://www.bible.com/bible/114/LUK.14.NKJV)
+
+### Day 5
+
+Abide in Me and bear much fruit—apart from Me you can do nothing.
+
+>"Abide in Me, and I in you. As the branch cannot bear fruit of itself, unless it abides in the vine, neither can you, unless you abide in Me." (John 15:4)
+
+ [Read John 15](https://www.bible.com/bible/114/JHN.15.NKJV)
+
+### Day 6
+
+Let this mind be in you which was also in Messiah—He humbled Himself and became obedient to death.
+
+>"Let this mind be in you which was also in Christ Jesus, who, being in the form of God, did not consider it robbery to be equal with God, but made Himself of no reputation, taking the form of a bondservant, and coming in the likeness of men." (Philippians 2:5-7)
+
+ [Read Philippians 2](https://www.bible.com/bible/114/PHP.2.NKJV)
+
+### Day 7
+
+Endure hardship as a good soldier of Yeshua—no one engaged in warfare entangles himself with the affairs of this life.
+
+>"You therefore must endure hardship as a good soldier of Jesus Christ. No one engaged in warfare entangles himself with the affairs of this life, that he may please him who enlisted him as a soldier." (2 Timothy 2:3-4)
+
+ [Read 2 Timothy 2](https://www.bible.com/bible/114/2TI.2.NKJV)
+
+## Treasure and Generosity: Where Your Heart Is (Jun 21)
 
 Scripture teaches that where we store treasure reveals where our heart truly belongs—and generous living flows from devotion to God.
 
@@ -1382,7 +1500,187 @@ The grace of giving—Christ became poor so that we might become rich.
 
  [Read 2 Corinthians 8](https://www.bible.com/bible/114/2CO.8.NKJV)
 
-## The Shema: Total Devotion to God (Jun 21)
+## Forgiveness and Reconciliation (Jun 28)
+
+The gospel restores broken relationships—vertical with God and horizontal with one another.
+
+### Day 1
+
+Jacob and Esau reconcile—what was broken by deceit is healed by grace.
+
+>"But Esau ran to meet him, and embraced him, and fell on his neck and kissed him, and they wept." (Genesis 33:4)
+
+ [Read Genesis 33](https://www.bible.com/bible/114/GEN.33.NKJV)
+
+### Day 2
+
+Create in me a clean heart—restore to me the joy of Your salvation.
+
+>"Create in me a clean heart, O God, and renew a steadfast spirit within me. Do not cast me away from Your presence, and do not take Your Holy Spirit from me." (Psalm 51:10-11)
+
+ [Read Psalm 51](https://www.bible.com/bible/114/PSA.51.NKJV)
+
+### Day 3
+
+Forgive your brother from your heart—so your Father in heaven will also forgive you.
+
+>"Then his master, after he had called him, said to him, 'You wicked servant! I forgave you all that debt because you begged me. Should you not also have had compassion on your fellow servant, just as I had pity on you?'" (Matthew 18:32-33)
+
+ [Read Matthew 18](https://www.bible.com/bible/114/MAT.18.NKJV)
+
+### Day 4
+
+The father runs to the prodigal—celebration when what was lost is found.
+
+>"But when he was still a great way off, his father saw him and had compassion, and ran and fell on his neck and kissed him." (Luke 15:20)
+
+ [Read Luke 15](https://www.bible.com/bible/114/LUK.15.NKJV)
+
+### Day 5
+
+God reconciled us to Himself through Messiah—and gave us the ministry of reconciliation.
+
+>"Now all things are of God, who has reconciled us to Himself through Jesus Christ, and has given us the ministry of reconciliation." (2 Corinthians 5:18)
+
+ [Read 2 Corinthians 5](https://www.bible.com/bible/114/2CO.5.NKJV)
+
+### Day 6
+
+Do not grieve the Holy Spirit—be kind, tenderhearted, forgiving one another as God forgave you.
+
+>"And be kind to one another, tenderhearted, forgiving one another, even as God in Christ forgave you." (Ephesians 4:32)
+
+ [Read Ephesians 4](https://www.bible.com/bible/114/EPH.4.NKJV)
+
+### Day 7
+
+Forgive as the Lord forgave you—above all, put on love which binds everything together.
+
+>"Bearing with one another, and forgiving one another, if anyone has a complaint against another; even as Christ forgave you, so you also must do." (Colossians 3:13)
+
+ [Read Colossians 3](https://www.bible.com/bible/114/COL.3.NKJV)
+
+## Life in the Spirit (Jul 5)
+
+After Pentecost, God's people walk by the Spirit—empowered, guided, and transformed from within.
+
+### Day 1
+
+A new heart and a new spirit—I will put My Spirit within you and cause you to walk in My statutes.
+
+>"I will give you a new heart and put a new spirit within you; I will take the heart of stone out of your flesh and give you a heart of flesh. I will put My Spirit within you and cause you to walk in My statutes, and you will keep My judgments and do them." (Ezekiel 36:26-27)
+
+ [Read Ezekiel 36](https://www.bible.com/bible/114/EZK.36.NKJV)
+
+### Day 2
+
+I will pour out My Spirit on all flesh—sons and daughters shall prophesy.
+
+>"And it shall come to pass afterward that I will pour out My Spirit on all flesh; your sons and your daughters shall prophesy, your old men shall dream dreams, your young men shall see visions." (Joel 2:28)
+
+ [Read Joel 2](https://www.bible.com/bible/114/JOL.2.NKJV)
+
+### Day 3
+
+When the Spirit of truth comes, He will guide you into all truth.
+
+>"However, when He, the Spirit of truth, has come, He will guide you into all truth; for He will not speak on His own authority, but whatever He hears He will speak; and He will tell you things to come." (John 16:13)
+
+ [Read John 16](https://www.bible.com/bible/114/JHN.16.NKJV)
+
+### Day 4
+
+Led by the Spirit of God—you are sons of God, and the Spirit Himself bears witness with our spirit.
+
+>"For as many as are led by the Spirit of God, these are sons of God. For you did not receive the spirit of bondage again to fear, but you received the Spirit of adoption by whom we cry out, 'Abba, Father.'" (Romans 8:14-15)
+
+ [Read Romans 8](https://www.bible.com/bible/114/ROM.8.NKJV)
+
+### Day 5
+
+Where the Spirit of the Lord is, there is liberty—we all, with unveiled face, behold the glory of the Lord.
+
+>"Now the Lord is the Spirit; and where the Spirit of the Lord is, there is liberty. But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as by the Spirit of the Lord." (2 Corinthians 3:17-18)
+
+ [Read 2 Corinthians 3](https://www.bible.com/bible/114/2CO.3.NKJV)
+
+### Day 6
+
+Walk in the Spirit and you shall not fulfill the lust of the flesh—the fruit of the Spirit is love, joy, peace.
+
+>"I say then: Walk in the Spirit, and you shall not fulfill the lust of the flesh. For the flesh lusts against the Spirit, and the Spirit against the flesh; and these are contrary to one another, so that you do not do the things that you wish." (Galatians 5:16-17)
+
+ [Read Galatians 5](https://www.bible.com/bible/114/GAL.5.NKJV)
+
+### Day 7
+
+Be filled with the Spirit—speaking to one another in psalms, hymns, and spiritual songs.
+
+>"And do not be drunk with wine, in which is dissipation; but be filled with the Spirit, speaking to one another in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord." (Ephesians 5:18-19)
+
+ [Read Ephesians 5](https://www.bible.com/bible/114/EPH.5.NKJV)
+
+## Unity in the Body of Messiah (Jul 12)
+
+Diverse gifts, one Spirit, one hope—God's people are called to visible, loving unity.
+
+### Day 1
+
+How good and pleasant when brothers dwell together in unity.
+
+>"Behold, how good and how pleasant it is for brethren to dwell together in unity! It is like the precious oil upon the head, running down on the beard, the beard of Aaron, running down on the edge of his garments." (Psalm 133:1-2)
+
+ [Read Psalm 133](https://www.bible.com/bible/114/PSA.133.NKJV)
+
+### Day 2
+
+Two sticks become one—one nation under one King, one Shepherd.
+
+>"Surely I will take the stick of Joseph, which is in the hand of Ephraim, and the tribes of Israel, his companions; and I will join them with it, with the stick of Judah, and make them one stick, and they will be one in My hand." (Ezekiel 37:19)
+
+ [Read Ezekiel 37](https://www.bible.com/bible/114/EZK.37.NKJV)
+
+### Day 3
+
+Yeshua prays that all may be one—as You, Father, are in Me, and I in You.
+
+>"I do not pray for these alone, but also for those who will believe in Me through their word; that they all may be one, as You, Father, are in Me, and I in You; that they also may be one in Us, that the world may believe that You sent Me." (John 17:20-21)
+
+ [Read John 17](https://www.bible.com/bible/114/JHN.17.NKJV)
+
+### Day 4
+
+The multitude of believers were of one heart and one soul—great grace was upon them all.
+
+>"Now the multitude of those who believed were of one heart and one soul; neither did anyone say that any of the things he possessed was his own, but they had all things in common." (Acts 4:32)
+
+ [Read Acts 4](https://www.bible.com/bible/114/ACT.4.NKJV)
+
+### Day 5
+
+Many members, one body—each part indispensable to the whole.
+
+>"For as the body is one and has many members, but all the members of that one body, being many, are one body, so also is Christ." (1 Corinthians 12:12)
+
+ [Read 1 Corinthians 12](https://www.bible.com/bible/114/1CO.12.NKJV)
+
+### Day 6
+
+One body, one Spirit, one hope—each given grace according to the measure of Messiah's gift.
+
+>"There is one body and one Spirit, just as you were called in one hope of your calling; one Lord, one faith, one baptism; one God and Father of all, who is above all, and through all, and in you all." (Ephesians 4:4-6)
+
+ [Read Ephesians 4](https://www.bible.com/bible/114/EPH.4.NKJV)
+
+### Day 7
+
+Above all, put on love which binds everything together in perfect unity.
+
+>"And above all these things put on love, which is the bond of perfection. And let the peace of God rule in your hearts, to which also you were called in one body; and be thankful." (Colossians 3:14-15)
+
+ [Read Colossians 3](https://www.bible.com/bible/114/COL.3.NKJV)
+
+## The Shema: Total Devotion to God (Jul 19)
 
 From Moses to Messiah, Scripture calls God's people to wholehearted love—knowing Him, obeying Him, and loving one another as He loves us.
 
@@ -1442,545 +1740,305 @@ Love one another, for God is love—and everyone who loves is born of God and kn
 
  [Read 1 John 4](https://www.bible.com/bible/114/1JN.4.NKJV)
 
-## Week 25 Placeholder (Jun 28)
+## Justice, Mercy, and Walking Humbly (Jul 26)
 
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 26 Placeholder (Jul 5)
-
-Placeholder readings for this week while the full theme is being finalized.
+True worship pairs covenant devotion with justice for the vulnerable.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Act justly, love mercy, and walk humbly with your God.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"He has shown you, O man, what is good; and what does the LORD require of you but to do justly, to love mercy, and to walk humbly with your God?" (Micah 6:8)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Micah 6](https://www.bible.com/bible/114/MIC.6.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Let justice roll down like water and righteousness like a mighty stream.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"But let justice run down like water, and righteousness like a mighty stream." (Amos 5:24)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Amos 5](https://www.bible.com/bible/114/AMO.5.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+True fasting: loose the bonds of wickedness, share your bread with the hungry, clothe the naked.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Is this not the fast that I have chosen: to loose the bonds of wickedness, to undo the heavy burdens, to let the oppressed go free, and that you break every yoke?" (Isaiah 58:6)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Isaiah 58](https://www.bible.com/bible/114/ISA.58.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Defend the poor and fatherless—do justice to the afflicted and needy.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Defend the poor and fatherless; do justice to the afflicted and needy. Deliver the poor and needy; free them from the hand of the wicked." (Psalm 82:3-4)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Psalm 82](https://www.bible.com/bible/114/PSA.82.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessed are the merciful and the peacemakers—they shall be called sons of God.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Blessed are the merciful, for they shall obtain mercy. Blessed are the pure in heart, for they shall see God. Blessed are the peacemakers, for they shall be called sons of God." (Matthew 5:7-9)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Matthew 5](https://www.bible.com/bible/114/MAT.5.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+The Spirit of the Lord is upon Me to preach good news to the poor and set at liberty those who are oppressed.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"The Spirit of the LORD is upon Me, because He has anointed Me to preach the gospel to the poor; He has sent Me to heal the brokenhearted, to proclaim liberty to the captives and recovery of sight to the blind, to set at liberty those who are oppressed." (Luke 4:18)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Luke 4](https://www.bible.com/bible/114/LUK.4.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Faith without works is dead—show me your faith by your works.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"What does it profit, my brethren, if someone says he has faith but does not have works? Can faith save him? If a brother or sister is naked and destitute of daily food, and one of you says to them, 'Depart in peace, be warmed and filled,' but you do not give them the things which are needed for the body, what does it profit?" (James 2:14-16)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read James 2](https://www.bible.com/bible/114/JAS.2.NKJV)
 
-## Week 27 Placeholder (Jul 12)
+## The Kingdom of Heaven (Aug 2)
 
-Placeholder readings for this week while the full theme is being finalized.
+Yeshua's teaching unveils the reign of God—its values, priorities, and coming judgment.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+A stone cut without hands becomes a mountain that fills the earth—a kingdom that shall never be destroyed.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And in the days of these kings the God of heaven will set up a kingdom which shall never be destroyed; and the kingdom shall not be left to other people; it shall break in pieces and consume all these kingdoms, and it shall stand forever." (Daniel 2:44)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Daniel 2](https://www.bible.com/bible/114/DAN.2.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessed are the poor in spirit—for theirs is the kingdom of heaven.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Blessed are the poor in spirit, for theirs is the kingdom of heaven. Blessed are those who mourn, for they shall be comforted. Blessed are the meek, for they shall inherit the earth." (Matthew 5:3-5)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Matthew 5](https://www.bible.com/bible/114/MAT.5.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Seek first the kingdom of God—pray, fast, and trust the Father who knows what you need.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"But seek first the kingdom of God and His righteousness, and all these things shall be added to you." (Matthew 6:33)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Build on the rock of hearing and doing Messiah's words—the wise builder endures the storm.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Therefore whoever hears these sayings of Mine, and does them, I will liken him to a wise man who built his house on the rock." (Matthew 7:24)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Matthew 7](https://www.bible.com/bible/114/MAT.7.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+The kingdom of God is like seed sown—some fall on good ground and yield a hundredfold.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"And He said, 'The kingdom of God is as if a man should scatter seed on the ground, and should sleep by night and rise by day, and the seed should sprout and grow, he himself does not know how.'" (Mark 4:26-27)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Mark 4](https://www.bible.com/bible/114/MRK.4.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Love your enemies, do good, and lend expecting nothing—your reward will be great in the kingdom.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"But love your enemies, do good, and lend, hoping for nothing in return; and your reward will be great, and you will be sons of the Most High. For He is kind to the unthankful and evil." (Luke 6:35)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Luke 6](https://www.bible.com/bible/114/LUK.6.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The kingdoms of this world have become the kingdoms of our Lord and of His Messiah.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Then the seventh angel sounded: And there were loud voices in heaven, saying, 'The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!'" (Revelation 11:15)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
 
-## Week 28 Placeholder (Jul 19)
+## Perseverance and Endurance (Aug 9)
 
-Placeholder readings for this week while the full theme is being finalized.
+Trials refine faith; those who endure to the end will be saved.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Job is tested yet remains blameless—blessed be the name of the LORD in suffering and in joy.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And he said: 'Naked I came from my mother's womb, and naked shall I return there. The LORD gave, and the LORD has taken away; blessed be the name of the LORD.'" (Job 1:21)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Job 1](https://www.bible.com/bible/114/JOB.1.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+I waited patiently for the LORD—He inclined to me and heard my cry.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"I waited patiently for the LORD; and He inclined to me, and heard my cry. He also brought me up out of a horrible pit, out of the miry clay, and set my feet upon a rock, and established my steps." (Psalm 40:1-2)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Psalm 40](https://www.bible.com/bible/114/PSA.40.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Suffering produces perseverance, character, and hope—and hope does not disappoint.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"And not only that, but we also glory in tribulations, knowing that tribulation produces perseverance; and perseverance, character; and character, hope." (Romans 5:3-4)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Romans 5](https://www.bible.com/bible/114/ROM.5.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Treasure in jars of clay—the surpassing power belongs to God and not to us.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"But we have this treasure in earthen vessels, that the excellence of the power may be of God and not of us. We are hard-pressed on every side, yet not crushed; we are perplexed, but not in despair." (2 Corinthians 4:7-8)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read 2 Corinthians 4](https://www.bible.com/bible/114/2CO.4.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Count it all joy when you fall into various trials—the testing of your faith produces patience.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"My brethren, count it all joy when you fall into various trials, knowing that the testing of your faith produces patience. But let patience have its perfect work, that you may be perfect and complete, lacking nothing." (James 1:2-4)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read James 1](https://www.bible.com/bible/114/JAS.1.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Run with endurance, fixing your eyes on Yeshua—the author and finisher of faith.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Therefore we also, since we are surrounded by so great a cloud of witnesses, let us lay aside every weight, and the sin which so easily ensnares us, and let us run with endurance the race that is set before us, looking unto Jesus, the author and finisher of our faith." (Hebrews 12:1-2)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 12](https://www.bible.com/bible/114/HEB.12.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+To the one who overcomes—I will give to eat from the tree of life in the midst of the Paradise of God.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give to eat from the tree of life, which is in the midst of the Paradise of God." (Revelation 2:7)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 2](https://www.bible.com/bible/114/REV.2.NKJV)
 
-## Week 29 Placeholder (Jul 26)
+## Wisdom for Living (Aug 16)
 
-Placeholder readings for this week while the full theme is being finalized.
+The fear of the Lord is the beginning of wisdom—and wisdom orders every area of life.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Wisdom calls aloud in the streets—turn at my rebuke and I will pour out my spirit on you.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Wisdom calls aloud outside; she raises her voice in the open squares. She cries out in the chief concourses, at the openings of the gates in the city she speaks her words." (Proverbs 1:20-21)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Proverbs 1](https://www.bible.com/bible/114/PRO.1.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Trust in the LORD with all your heart—lean not on your own understanding.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Trust in the LORD with all your heart, and lean not on your own understanding; in all your ways acknowledge Him, and He shall direct your paths." (Proverbs 3:5-6)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Proverbs 3](https://www.bible.com/bible/114/PRO.3.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+A time for everything under heaven—God has made everything beautiful in its time.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"To everything there is a season, a time for every purpose under heaven: a time to be born, and a time to die; a time to plant, and a time to pluck what is planted." (Ecclesiastes 3:1-2)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Ecclesiastes 3](https://www.bible.com/bible/114/ECC.3.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Remember your Creator in the days of your youth—fear God and keep His commandments.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Remember now your Creator in the days of your youth, before the difficult days come, and the years draw near when you say, 'I have no pleasure in them.'" (Ecclesiastes 12:1)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Ecclesiastes 12](https://www.bible.com/bible/114/ECC.12.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Do not fret because of evildoers—trust in the LORD and do good; dwell in the land and feed on His faithfulness.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Do not fret because of evildoers, nor be envious of the workers of iniquity. For they shall soon be cut down like the grass, and wither as the green herb. Trust in the LORD, and do good; dwell in the land, and feed on His faithfulness." (Psalm 37:1-3)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Psalm 37](https://www.bible.com/bible/114/PSA.37.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Wisdom from above is pure, peaceable, gentle, and full of mercy—show your works by good conduct.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"But the wisdom that is from above is first pure, then peaceable, gentle, willing to yield, full of mercy and good fruits, without partiality and without hypocrisy." (James 3:17)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read James 3](https://www.bible.com/bible/114/JAS.3.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Set your mind on things above, not on things on the earth—seek the things that are above.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"If then you were raised with Christ, seek those things which are above, where Christ is, sitting at the right hand of God. Set your mind on things above, not on things on the earth." (Colossians 3:1-2)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Colossians 3](https://www.bible.com/bible/114/COL.3.NKJV)
 
-## Week 30 Placeholder (Aug 2)
+## The Days of Awe: Repentance Before the King (Aug 23)
 
-Placeholder readings for this week while the full theme is being finalized.
+The ten days between Trumpets and Yom Kippur call Israel—and the Church—to search the heart and return to God.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The Day of Atonement is appointed—once a year the high priest enters the Holy of Holies with blood.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"So the priest shall make atonement for the holy place, because of the uncleanness of the children of Israel, and because of their transgressions, for all their sins; and so he shall do for the tabernacle of meeting which remains among them in the midst of their uncleanness." (Leviticus 16:16)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 31 Placeholder (Aug 9)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Leviticus 16](https://www.bible.com/bible/114/LEV.16.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Return to Me with all your heart—with fasting, weeping, and mourning.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Now, therefore,' says the LORD, 'Turn to Me with all your heart, with fasting, with weeping, and with mourning.' So rend your heart, and not your garments; return to the LORD your God, for He is gracious and merciful, slow to anger, and of great kindness." (Joel 2:12-13)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 32 Placeholder (Aug 16)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Joel 2](https://www.bible.com/bible/114/JOL.2.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Nineveh repents at the preaching of judgment—from the greatest to the least, they turn from evil.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"So the people of Nineveh believed God, proclaimed a fast, and put on sackcloth, from the greatest to the least of them." (Jonah 3:5)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 33 Placeholder (Aug 23)
-
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Jonah 3](https://www.bible.com/bible/114/JON.3.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+A broken and contrite heart—God will not despise the one who truly repents.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"The sacrifices of God are a broken spirit, a broken and a contrite heart—these, O God, You will not despise." (Psalm 51:17)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Psalm 51](https://www.bible.com/bible/114/PSA.51.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Repent, for the kingdom of heaven is at hand—prepare the way of the Lord.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"In those days John the Baptist came preaching in the wilderness of Judea, and saying, 'Repent, for the kingdom of heaven is at hand!'" (Matthew 3:1-2)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Matthew 3](https://www.bible.com/bible/114/MAT.3.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Repent and be converted—that times of refreshing may come from the presence of the Lord.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Repent therefore and be converted, that your sins may be blotted out, so that times of refreshing may come from the presence of the Lord." (Acts 3:19)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Acts 3](https://www.bible.com/bible/114/ACT.3.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Godly sorrow produces repentance leading to salvation—worldly sorrow produces death.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"For godly sorrow produces repentance leading to salvation, not to be regretted; but the sorrow of the world produces death." (2 Corinthians 7:10)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 2 Corinthians 7](https://www.bible.com/bible/114/2CO.7.NKJV)
 
 ## Preparation for Trumpets (Aug 30)
 
@@ -2102,962 +2160,962 @@ The seventh trumpet proclaims the reign of Messiah.
 
  [Read Revelation 11](https://www.bible.com/bible/114/REV.11.NKJV)
 
-## Week 34 Placeholder (Sep 13)
+## Yom Kippur: Atonement and Access to God (Sep 13)
 
-Placeholder readings for this week while the full theme is being finalized.
-
-### Day 1
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
-
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
-
-### Day 2
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
-
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
-
-### Day 3
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
-
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
-
-### Day 4
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
-
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
-
-### Day 5
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"Be still, and know that I am God." (Psalm 46:10)
-
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
-
-### Day 6
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
-
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
-
-### Day 7
-
-Hold fast to the Lord while this week's theme is being developed.
-
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
-
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
-
-## Week 36 Placeholder (Sep 20)
-
-Placeholder readings for this week while the full theme is being finalized.
+The Day of Atonement points to the one sacrifice that opens the way into the Holy of Holies.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The scapegoat bears the sins of the people into the wilderness—atonement made once a year.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"But the goat on which the lot fell to be the scapegoat shall be presented alive before the LORD, to make atonement upon it, and to let it go as the scapegoat into the wilderness." (Leviticus 16:10)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Leviticus 16](https://www.bible.com/bible/114/LEV.16.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+The tenth day of the seventh month is the Day of Atonement—a holy convocation and solemn rest.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Also the tenth day of this seventh month shall be the Day of Atonement. It shall be a holy convocation for you; you shall afflict your souls, and offer an offering made by fire to the LORD." (Leviticus 23:27)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+He was wounded for our transgressions and bruised for our iniquities—the LORD laid on Him the iniquity of us all.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"But He was wounded for our transgressions, He was bruised for our iniquities; the chastisement for our peace was upon Him, and by His stripes we are healed." (Isaiah 53:5)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Isaiah 53](https://www.bible.com/bible/114/ISA.53.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Justified freely by His grace through the redemption that is in Messiah Yeshua.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Being justified freely by His grace through the redemption that is in Christ Jesus, whom God set forth as a propitiation by His blood, through faith, to demonstrate His righteousness." (Romans 3:24-25)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Romans 3](https://www.bible.com/bible/114/ROM.3.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Messiah entered the greater tabernacle—not with the blood of goats, but with His own blood.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"But Christ came as High Priest of the good things to come, with the greater and more perfect tabernacle not made with hands, that is, not of this creation." (Hebrews 9:11)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Hebrews 9](https://www.bible.com/bible/114/HEB.9.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+By one offering He has perfected forever those who are being sanctified.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"But this Man, after He had offered one sacrifice for sins forever, sat down at the right hand of God, from that time waiting till His enemies are made His footstool." (Hebrews 10:12-13)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 10](https://www.bible.com/bible/114/HEB.10.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The blood of Yeshua cleanses us from all sin—if we walk in the light, we have fellowship with one another.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"But if we walk in the light as He is in the light, we have fellowship with one another, and the blood of Jesus Christ His Son cleanses us from all sin." (1 John 1:7)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 1 John 1](https://www.bible.com/bible/114/1JN.1.NKJV)
 
-## Week 37 Placeholder (Sep 27)
+## Feast of Tabernacles: God Dwells With Us (Sep 20)
 
-Placeholder readings for this week while the full theme is being finalized.
+Sukkot celebrates God's presence dwelling among His people—in the wilderness, in the Temple, and in Messiah.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The Feast of Booths is appointed—dwell in booths seven days so all generations may know the LORD brought Israel out of Egypt.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Speak to the children of Israel, saying: 'The fifteenth day of this seventh month shall be the Feast of Tabernacles for seven days to the LORD.'" (Leviticus 23:34)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Leviticus 23](https://www.bible.com/bible/114/LEV.23.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Joy in the Law at the water gate—the people wept, then rejoiced in the feast.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"So Ezra the scribe stood on a platform of wood which they had made for the purpose; and beside him, at his right hand, stood Mattithiah, Shema, Anaiah, Urijah, Hilkiah, and Maaseiah; and at his left hand Pedaiah, Mishael, Malchijah, Hashum, Hashbadana, Zechariah, and Meshullam." (Nehemiah 8:4)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Nehemiah 8](https://www.bible.com/bible/114/NEH.8.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+This is the day the LORD has made—we will rejoice and be glad in it.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"The stone which the builders rejected has become the chief cornerstone. This was the LORD's doing; it is marvelous in our eyes. This is the day the LORD has made; we will rejoice and be glad in it." (Psalm 118:22-24)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 118](https://www.bible.com/bible/114/PSA.118.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+All nations shall keep the Feast of Tabernacles—the LORD shall be King over all the earth.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"And it shall come to pass that everyone who is left of all the nations which came against Jerusalem shall go up from year to year to worship the King, the LORD of hosts, and to keep the Feast of Tabernacles." (Zechariah 14:16)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Zechariah 14](https://www.bible.com/bible/114/ZEC.14.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+The Word became flesh and tabernacled among us—we beheld His glory, full of grace and truth.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"And the Word became flesh and dwelt among us, and we beheld His glory, the glory as of the only begotten of the Father, full of grace and truth." (John 1:14)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read John 1](https://www.bible.com/bible/114/JHN.1.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+On the great day of the feast, Yeshua cried out—rivers of living water from those who believe.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"On the last day, that great day of the feast, Jesus stood and cried out, saying, 'If anyone thirsts, let him come to Me and drink. He who believes in Me, as the Scripture has said, out of his heart will flow rivers of living water.'" (John 7:37-38)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read John 7](https://www.bible.com/bible/114/JHN.7.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Behold, the tabernacle of God is with men—He will dwell with them and they shall be His people.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"And I heard a loud voice from heaven saying, 'Behold, the tabernacle of God is with men, and He will dwell with them, and they shall be His people. God Himself will be with them and be their God.'" (Revelation 21:3)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 21](https://www.bible.com/bible/114/REV.21.NKJV)
 
-## Week 38 Placeholder (Oct 4)
+## The Ingathering: Joy at the End of the Harvest (Sep 27)
 
-Placeholder readings for this week while the full theme is being finalized.
+Shemini Atzeret closes the feast cycle with lingering joy—God is not done gathering His people.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Rejoice in your feast with the Levite, the stranger, the fatherless, and the widow.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And you shall rejoice in your feast, you and your son and your daughter, your male servant and your female servant, the Levite, the stranger, the fatherless, and the widow who are within your gates." (Deuteronomy 16:14)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 16](https://www.bible.com/bible/114/DEU.16.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Ruth gleans in Boaz's field—provision and kindness at harvest time.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"So she fell on her face, bowed down to the ground, and said to him, 'Why have I found favor in your eyes, that you should take notice of me, since I am a foreigner?'" (Ruth 2:10)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Ruth 2](https://www.bible.com/bible/114/RUT.2.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+We were like those who dream—our mouth was filled with laughter when the LORD restored our fortunes.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"When the LORD brought back the captivity of Zion, we were like those who dream. Then our mouth was filled with laughter, and our tongue with singing." (Psalm 126:1-2)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 126](https://www.bible.com/bible/114/PSA.126.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Come, everyone who thirsts—buy wine and milk without money and without price.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Ho! Everyone who thirsts, come to the waters; and you who have no money, come, buy and eat. Yes, come, buy wine and milk without money and without price." (Isaiah 55:1)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Isaiah 55](https://www.bible.com/bible/114/ISA.55.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+There is joy in heaven over one sinner who repents—celebration when the lost is found.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Likewise, I say to you, there is joy in the presence of the angels of God over one sinner who repents." (Luke 15:10)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Luke 15](https://www.bible.com/bible/114/LUK.15.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Lift up your eyes and look at the fields—the harvest is already white for harvest.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Do you not say, 'There are still four months and then comes the harvest'? Behold, I say to you, lift up your eyes and look at the fields, for they are already white for harvest!" (John 4:35)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read John 4](https://www.bible.com/bible/114/JHN.4.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The harvest of the earth is ripe—send forth Your sickle, for the time has come.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Then I looked, and behold, a white cloud, and on the cloud sat One like the Son of Man, having on His head a golden crown, and in His hand a sharp sickle." (Revelation 14:14)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 14](https://www.bible.com/bible/114/REV.14.NKJV)
 
-## Week 40 Placeholder (Oct 11)
+## The Bride of Messiah (Oct 4)
 
-Placeholder readings for this week while the full theme is being finalized.
+From Isaac and Rebekah to the Marriage Supper—Scripture portrays covenant love as bridal devotion.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+A bride for Isaac—the servant is sent to find a wife for the heir of promise.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Then the servant took ten of his master's camels and departed, for all his master's goods were in his hand. And he arose and went to Mesopotamia, to the city of Nahor." (Genesis 24:10)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Genesis 24](https://www.bible.com/bible/114/GEN.24.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+My beloved is mine and I am his—love in the spring when flowers appear on the earth.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"My beloved is mine, and I am his. He feeds his flock among the lilies." (Song of Solomon 2:16)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Song of Solomon 2](https://www.bible.com/bible/114/SNG.2.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+As a bridegroom rejoices over his bride, so your God will rejoice over you.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"You shall also be a crown of glory in the hand of the LORD, and a royal diadem in the hand of your God. You shall no longer be termed Forsaken, nor shall your land any more be termed Desolate; but you shall be called Hephzibah, and your land Beulah; for the LORD delights in you, and your land shall be married." (Isaiah 62:3-4)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Isaiah 62](https://www.bible.com/bible/114/ISA.62.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+The wise virgins trim their lamps and wait for the Bridegroom—be ready, for you do not know the hour.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Watch therefore, for you know neither the day nor the hour in which the Son of Man is coming." (Matthew 25:13)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Matthew 25](https://www.bible.com/bible/114/MAT.25.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Betrothed to one Husband—that I may present you as a chaste virgin to Messiah.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"For I am jealous for you with godly jealousy. For I have betrothed you to one husband, that I may present you as a chaste virgin to Christ." (2 Corinthians 11:2)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read 2 Corinthians 11](https://www.bible.com/bible/114/2CO.11.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Messiah loved the church and gave Himself for her—that He might present her to Himself a glorious church.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Husbands, love your wives, just as Christ also loved the church and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the word." (Ephesians 5:25-26)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Ephesians 5](https://www.bible.com/bible/114/EPH.5.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessed are those invited to the Marriage Supper of the Lamb—the bride has made herself ready.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Let us be glad and rejoice and give Him glory, for the marriage of the Lamb has come, and His wife has made herself ready." (Revelation 19:7)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 19](https://www.bible.com/bible/114/REV.19.NKJV)
 
-## Week 41 Placeholder (Oct 18)
+## Hope: The Anchor for the Soul (Oct 11)
 
-Placeholder readings for this week while the full theme is being finalized.
+Hope is not wishful thinking—it is Spirit-formed confidence that steadies daily choices while we await Messiah's fullness.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Why are you cast down, O my soul? Hope in God, for I shall yet praise Him.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Why are you cast down, O my soul? And why are you disquieted within me? Hope in God, for I shall yet praise Him for the help of His countenance." (Psalm 42:5)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Psalm 42](https://www.bible.com/bible/114/PSA.42.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+His mercies are new every morning—great is His faithfulness.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Through the LORD's mercies we are not consumed, because His compassions fail not. They are new every morning; great is Your faithfulness." (Lamentations 3:22-23)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Lamentations 3](https://www.bible.com/bible/114/LAM.3.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Suffering produces perseverance, character, and hope that does not disappoint.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"And not only that, but we also glory in tribulations, knowing that tribulation produces perseverance; and perseverance, character; and character, hope." (Romans 5:3-4)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Romans 5](https://www.bible.com/bible/114/ROM.5.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+The God of hope fills you with joy and peace in believing.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Now may the God of hope fill you with all joy and peace in believing, that you may abound in hope by the power of the Holy Spirit." (Romans 15:13)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Romans 15](https://www.bible.com/bible/114/ROM.15.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+This hope we have as an anchor of the soul, both sure and steadfast.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"This hope we have as an anchor of the soul, both sure and steadfast, and which enters the Presence behind the veil." (Hebrews 6:19)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Hebrews 6](https://www.bible.com/bible/114/HEB.6.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Begotten again to a living hope through the resurrection of Jesus Christ from the dead.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Blessed be the God and Father of our Lord Jesus Christ, who according to His abundant mercy has begotten us again to a living hope through the resurrection of Jesus Christ from the dead." (1 Peter 1:3)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read 1 Peter 1](https://www.bible.com/bible/114/1PE.1.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Looking for the blessed hope and glorious appearing of our great God and Savior.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Looking for the blessed hope and glorious appearing of our great God and Savior Jesus Christ." (Titus 2:13)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Titus 2](https://www.bible.com/bible/114/TIT.2.NKJV)
 
-## Week 42 Placeholder (Oct 25)
+## Living as Pilgrims and Sojourners (Oct 18)
 
-Placeholder readings for this week while the full theme is being finalized.
+God's people are citizens of another kingdom, passing through this age with faith and hope.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Abram is called to leave his country—by faith he obeyed and went out, not knowing where he was going.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Now the LORD had said to Abram: 'Get out of your country, from your family and from your father's house, to a land that I will show you.'" (Genesis 12:1)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Genesis 12](https://www.bible.com/bible/114/GEN.12.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessed are those whose strength is in pilgrimage—they go from strength to strength until they appear before God in Zion.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Blessed is the man whose strength is in You, whose heart is set on pilgrimage. As they pass through the Valley of Baca, they make it a spring; the rain also covers it with pools." (Psalm 84:5-6)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Psalm 84](https://www.bible.com/bible/114/PSA.84.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+We walk by faith, not by sight—while at home in the body we are absent from the Lord.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"For we walk by faith, not by sight. We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord." (2 Corinthians 5:7-8)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read 2 Corinthians 5](https://www.bible.com/bible/114/2CO.5.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Our citizenship is in heaven—from there we eagerly wait for the Savior, the Lord Yeshua Messiah.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"For our citizenship is in heaven, from which we also eagerly wait for the Savior, the Lord Jesus Christ, who will transform our lowly body that it may be conformed to His glorious body." (Philippians 3:20-21)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Philippians 3](https://www.bible.com/bible/114/PHP.3.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+By faith Abraham dwelt in tents—strangers and pilgrims on the earth, seeking a homeland.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"These all died in faith, not having received the promises, but having seen them afar off were assured of them, embraced them and confessed that they were strangers and pilgrims on the earth." (Hebrews 11:13)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Hebrews 11](https://www.bible.com/bible/114/HEB.11.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Here we have no continuing city—we seek the one to come.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"For here we have no continuing city, but we seek the one to come. Therefore by Him let us continually offer the sacrifice of praise to God, that is, the fruit of our lips, giving thanks to His name." (Hebrews 13:14-15)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 13](https://www.bible.com/bible/114/HEB.13.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+As sojourners and pilgrims, abstain from fleshly lusts which war against the soul.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Beloved, I beg you as sojourners and pilgrims, abstain from fleshly lusts which war against the soul, having your conduct honorable among the Gentiles." (1 Peter 2:11-12)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 1 Peter 2](https://www.bible.com/bible/114/1PE.2.NKJV)
 
-## Week 43 Placeholder (Nov 1)
+## Hospitality: Welcoming the Stranger (Oct 25)
 
-Placeholder readings for this week while the full theme is being finalized.
+Love of neighbor becomes concrete when we make room—at the table, in the schedule, and in the heart.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Love the stranger, for you were strangers in the land of Egypt.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Therefore love the stranger, for you were strangers in the land of Egypt." (Deuteronomy 10:19)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 10](https://www.bible.com/bible/114/DEU.10.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Job opens his doors to the traveler—the stranger does not lodge in the street.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"The stranger did not lodge in the street; I opened my doors to the traveler." (Job 31:32)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Job 31](https://www.bible.com/bible/114/JOB.31.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Boaz notices Ruth and provides for the stranger at the harvest.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Then Boaz said to Ruth, 'You will listen, my daughter, will you not? Do not go to glean in another field, nor go from here, but stay close by my young women.'" (Ruth 2:8)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Ruth 2](https://www.bible.com/bible/114/RUT.2.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+The Good Samaritan stops, spends, and shows mercy to a stranger.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"But a certain Samaritan, as he journeyed, came where he was. And when he saw him, he had compassion." (Luke 10:33)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Luke 10](https://www.bible.com/bible/114/LUK.10.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Practice hospitality—distribute to the needs of the saints.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Distributing to the needs of the saints, given to hospitality." (Romans 12:13)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Romans 12](https://www.bible.com/bible/114/ROM.12.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Do not forget to entertain strangers, for by so doing some have unwittingly entertained angels.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Do not forget to entertain strangers, for by so doing some have unwittingly entertained angels." (Hebrews 13:2)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 13](https://www.bible.com/bible/114/HEB.13.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Offer hospitality to one another without grumbling.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Be hospitable to one another without grumbling." (1 Peter 4:9)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 1 Peter 4](https://www.bible.com/bible/114/1PE.4.NKJV)
 
-## Week 44 Placeholder (Nov 8)
+## Generational Faithfulness (Nov 1)
 
-Placeholder readings for this week while the full theme is being finalized.
+Pass the covenant to the next generation—teach, remember, and entrust.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Teach them diligently to your children—talk of them when you sit, walk, lie down, and rise up.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And these words which I command you today shall be in your heart. You shall teach them diligently to your children, and shall talk of them when you sit in your house, when you walk by the way, when you lie down, and when you rise up." (Deuteronomy 6:6-7)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Your days and your children's days may be multiplied in the land the LORD swore to your fathers.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"That your days and the days of your children may be multiplied in the land of which the LORD swore to your fathers to give them, like the days of the heavens above the earth." (Deuteronomy 11:21)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Deuteronomy 11](https://www.bible.com/bible/114/DEU.11.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Tell the coming generation the praiseworthy deeds of the LORD—do not hide them from their children.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"We will not hide them from their children, telling to the generation to come the praises of the LORD, and His strength and His wonderful works that He has done." (Psalm 78:4)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 78](https://www.bible.com/bible/114/PSA.78.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+One generation shall praise Your works to another—they shall declare Your mighty acts.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"One generation shall praise Your works to another, and shall declare Your mighty acts. I will meditate on the glorious splendor of Your majesty, and on Your wondrous works." (Psalm 145:4-5)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Psalm 145](https://www.bible.com/bible/114/PSA.145.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Entrust to faithful people who will be able to teach others also—what you have heard from me in the presence of many witnesses.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"And the things that you have heard from me among many witnesses, commit these to faithful men who will be able to teach others also." (2 Timothy 2:2)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read 2 Timothy 2](https://www.bible.com/bible/114/2TI.2.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Sound doctrine across every age group—older men, older women, young men, and bondservants each have their calling.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"That the older men be sober, reverent, temperate, sound in faith, in love, in patience; the older women likewise, that they be reverent in behavior, not slanderers, not given to much wine, teachers of good things." (Titus 2:2-3)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Titus 2](https://www.bible.com/bible/114/TIT.2.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+I have no greater joy than to hear that my children walk in truth.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"I have no greater joy than to hear that my children walk in truth." (3 John 1:4)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read 3 John](https://www.bible.com/bible/114/3JN.1.NKJV)
 
-## Week 45 Placeholder (Nov 15)
+## The Better Covenant (Nov 8)
 
-Placeholder readings for this week while the full theme is being finalized.
+From shadows to substance—Messiah mediates a covenant with superior promises.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The New Covenant—I will put My law in their minds and write it on their hearts.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"But this is the covenant that I will make with the house of Israel after those days, says the LORD: I will put My law in their minds, and write it on their hearts; and I will be their God, and they shall be My people." (Jeremiah 31:33)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Jeremiah 31](https://www.bible.com/bible/114/JER.31.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+I will give you a new heart and put a new spirit within you—you shall be My people, and I will be your God.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Then you shall dwell in the land that I gave to your fathers; you shall be My people, and I will be your God." (Ezekiel 36:28)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Ezekiel 36](https://www.bible.com/bible/114/EZK.36.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+This cup is the New Covenant in My blood—which is shed for many for the remission of sins.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Then He took the cup, and gave thanks, and gave it to them, saying, 'Drink from it, all of you. For this is My blood of the new covenant, which is shed for many for the remission of sins.'" (Luke 22:20)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Luke 22](https://www.bible.com/bible/114/LUK.22.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+The ministry of the Spirit is more glorious than the ministry of condemnation.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"But if the ministry of death, written and engraved on stones, was glorious, so that the children of Israel could not look steadily at the face of Moses because of the glory of his countenance, which glory was passing away, how will the ministry of the Spirit not be more glorious?" (2 Corinthians 3:7-8)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read 2 Corinthians 3](https://www.bible.com/bible/114/2CO.3.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Messiah has obtained a more excellent ministry—He is Mediator of a better covenant established on better promises.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"But now He has obtained a more excellent ministry, inasmuch as He is also Mediator of a better covenant, which was established on better promises." (Hebrews 8:6)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Hebrews 8](https://www.bible.com/bible/114/HEB.8.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Messiah entered the greater tabernacle with His own blood, having obtained eternal redemption.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once for all, having obtained eternal redemption." (Hebrews 9:12)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 9](https://www.bible.com/bible/114/HEB.9.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+You have come to Mount Zion, the city of the living God—to the general assembly and church of the firstborn.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the general assembly and church of the firstborn who are registered in heaven." (Hebrews 12:22-23)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Hebrews 12](https://www.bible.com/bible/114/HEB.12.NKJV)
 
-## Week 46 Placeholder (Nov 22)
+## Obedience That Blesses (Nov 15)
 
-Placeholder readings for this week while the full theme is being finalized.
+Love for God and love for neighbor expressed through keeping His commandments.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessings for obedience—and warnings against turning aside from the LORD your God.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Now it shall come to pass, if you diligently obey the voice of the LORD your God, to observe carefully all His commandments which I command you today, that the LORD your God will set you high above all nations of the earth." (Deuteronomy 28:1)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Deuteronomy 28](https://www.bible.com/bible/114/DEU.28.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Choose life, that you may live—love the LORD, obey His voice, and cling to Him.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"I call heaven and earth as witnesses today against you, that I have set before you life and death, blessing and cursing; therefore choose life, that both you and your descendants may live." (Deuteronomy 30:19)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Deuteronomy 30](https://www.bible.com/bible/114/DEU.30.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Blessed are the undefiled who walk in the law of the LORD—Your word I have hidden in my heart.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Blessed are the undefiled in the way, who walk in the law of the LORD! Blessed are those who keep His testimonies, who seek Him with the whole heart!" (Psalm 119:1-2)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 119](https://www.bible.com/bible/114/PSA.119.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+If you love Me, keep My commandments—and I will pray the Father to give you another Helper.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"If you love Me, keep My commandments. And I will pray the Father, and He will give you another Helper, that He may abide with you forever." (John 14:15-16)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read John 14](https://www.bible.com/bible/114/JHN.14.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+By this we know that we know Him—if we keep His commandments, he who says he abides in Him ought to walk as He walked.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Now by this we know that we know Him, if we keep His commandments. He who says, 'I know Him,' and does not keep His commandments, is a liar, and the truth is not in him." (1 John 2:3-4)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read 1 John 2](https://www.bible.com/bible/114/1JN.2.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Be doers of the word, not hearers only—deceiving yourselves.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man observing his natural face in a mirror." (James 1:22-23)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read James 1](https://www.bible.com/bible/114/JAS.1.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Here are those who keep the commandments of God and the faith of Yeshua—patient endurance of the saints.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Here is the patience of the saints; here are those who keep the commandments of God and the faith of Jesus." (Revelation 14:12)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 14](https://www.bible.com/bible/114/REV.14.NKJV)
 
-## Week 47 Placeholder (Nov 29)
+## Worship as a Lifestyle (Nov 22)
 
-Placeholder readings for this week while the full theme is being finalized.
+From tabernacle to temple to heart—true worship is spirit and truth in every moment.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The Song of Moses—who is like You, O LORD, glorious in holiness, fearful in praises, doing wonders?
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Who is like You, O LORD, among the gods? Who is like You, glorious in holiness, fearful in praises, doing wonders?" (Exodus 15:11)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Exodus 15](https://www.bible.com/bible/114/EXO.15.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+David dances before the LORD with all his might—Michal despises him, but he will yet be more vile than this.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Then David danced before the LORD with all his might; and David was wearing a linen ephod." (2 Samuel 6:14)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read 2 Samuel 6](https://www.bible.com/bible/114/2SA.6.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Come, let us worship and bow down—let us kneel before the LORD our Maker.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Oh come, let us worship and bow down; let us kneel before the LORD our Maker. For He is our God, and we are the people of His pasture, and the sheep of His hand." (Psalm 95:6-7)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Psalm 95](https://www.bible.com/bible/114/PSA.95.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+True worshipers will worship the Father in spirit and truth—for the Father is seeking such to worship Him.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"But the hour is coming, and now is, when the true worshipers will worship the Father in spirit and truth; for the Father is seeking such to worship Him." (John 4:23)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read John 4](https://www.bible.com/bible/114/JHN.4.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Present your bodies as living sacrifices—holy, acceptable to God, which is your reasonable service of worship.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, which is your reasonable service." (Romans 12:1)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Romans 12](https://www.bible.com/bible/114/ROM.12.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Continually offer the sacrifice of praise—the fruit of lips that give thanks to His name.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Therefore by Him let us continually offer the sacrifice of praise to God, that is, the fruit of our lips, giving thanks to His name." (Hebrews 13:15)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Hebrews 13](https://www.bible.com/bible/114/HEB.13.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Worthy is the Lamb who was slain—to receive power and riches and wisdom and strength and honor and glory and blessing.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Saying with a loud voice: 'Worthy is the Lamb who was slain to receive power and riches and wisdom, and strength and honor and glory and blessing!'" (Revelation 5:12)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 5](https://www.bible.com/bible/114/REV.5.NKJV)
 
-## Week 48 Placeholder (Dec 6)
+## God's Sovereignty Over History (Nov 29)
 
-Placeholder readings for this week while the full theme is being finalized.
+From Genesis to Revelation, the Lord directs the story—nothing is outside His purpose.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+You meant evil against me, but God meant it for good—to save many people alive.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"But as for you, you meant evil against me; but God meant it for good, in order to bring it about as it is this day, to save many people alive." (Genesis 50:20)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Genesis 50](https://www.bible.com/bible/114/GEN.50.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+The LORD brings the counsel of the nations to nothing—His counsel stands forever.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"The LORD brings the counsel of the nations to nothing; He makes the plans of the peoples of no effect. The counsel of the LORD stands forever, the plans of His heart to all generations." (Psalm 33:10-11)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Psalm 33](https://www.bible.com/bible/114/PSA.33.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+My counsel shall stand, and I will do all My pleasure—I have spoken, and I will bring it to pass.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Declaring the end from the beginning, and from ancient times things that are not yet done, saying, 'My counsel shall stand, and I will do all My pleasure.'" (Isaiah 46:10)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Isaiah 46](https://www.bible.com/bible/114/ISA.46.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+He changes the times and the seasons—He removes kings and raises up kings.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"And He changes the times and the seasons; He removes kings and raises up kings; He gives wisdom to the wise and knowledge to those who have understanding." (Daniel 2:21)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Daniel 2](https://www.bible.com/bible/114/DAN.2.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+He determined their preappointed times and the boundaries of their dwellings—that they should seek the Lord.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"And He has made from one blood every nation of men to dwell on all the face of the earth, and has determined their preappointed times and the boundaries of their dwellings, so that they should seek the Lord, in the hope that they might grope for Him and find Him." (Acts 17:26-27)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Acts 17](https://www.bible.com/bible/114/ACT.17.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+He works all things according to the counsel of His will—to the praise of the glory of His grace.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"In Him also we have obtained an inheritance, being predestined according to the purpose of Him who works all things according to the counsel of His will." (Ephesians 1:11)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Ephesians 1](https://www.bible.com/bible/114/EPH.1.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The throne in heaven—Holy, holy, holy, Lord God Almighty, who was and is and is to come.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"Whenever the living creatures give glory and honor and thanks to Him who sits on the throne, who lives forever and ever, the twenty-four elders fall down before Him who sits on the throne and worship Him who lives forever and ever." (Revelation 4:9-10)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 4](https://www.bible.com/bible/114/REV.4.NKJV)
 
-## Week 49 Placeholder (Dec 13)
+## Shine Where You Are (Dec 6)
 
-Placeholder readings for this week while the full theme is being finalized.
+You are not called to curse the darkness alone—you are called to carry light into it. Joseph, Esther, and Shadrach show what that looks like in exile, in the palace, and under pressure to bow.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+Joseph shines before Pharaoh—it is not in me; God will give the answer.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"So Joseph answered Pharaoh, saying, 'It is not in me; God will give Pharaoh an answer of peace.'" (Genesis 41:16)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Genesis 41](https://www.bible.com/bible/114/GEN.41.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Esther—for such a time as this you have come to the kingdom.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"For if you remain completely silent at this time, relief and deliverance will arise for the Jews from another place, but you and your father's house will perish. Yet who knows whether you have come to the kingdom for such a time as this?" (Esther 4:14)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Esther 4](https://www.bible.com/bible/114/EST.4.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Shadrach, Meshach, and Abednego refuse the image—our God is able to deliver us.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"If that is the case, our God whom we serve is able to deliver us from the burning fiery furnace, and He will deliver us from your hand, O king. But if not, let it be known to you, O king, that we do not serve your gods, nor will we worship the gold image which you have set up." (Daniel 3:17-18)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Daniel 3](https://www.bible.com/bible/114/DAN.3.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+Let your light so shine before men, that they may glorify your Father in heaven.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"Let your light so shine before men, that they may see your good works and glorify your Father in heaven." (Matthew 5:16)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read Matthew 5](https://www.bible.com/bible/114/MAT.5.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+At the Feast of Dedication, Yeshua walks in the temple—His sheep hear His voice and follow Him.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Now it was the Feast of Dedication in Jerusalem, and it was winter. And Jesus walked in the temple, in Solomon's porch." (John 10:22-23)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read John 10](https://www.bible.com/bible/114/JHN.10.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Walk as children of light—expose the works of darkness.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"For you were once darkness, but now you are light in the Lord. Walk as children of light." (Ephesians 5:8)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Ephesians 5](https://www.bible.com/bible/114/EPH.5.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+Shine as lights in the world, holding fast the word of life.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"That you may become blameless and harmless, children of God without fault in the midst of a crooked and perverse generation, among whom you shine as lights in the world." (Philippians 2:15)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Philippians 2](https://www.bible.com/bible/114/PHP.2.NKJV)
 
-## Week 50 Placeholder (Dec 20)
+## Redemption's Story: From Eden to Eternity (Dec 13)
 
-Placeholder readings for this week while the full theme is being finalized.
+A year-end panorama: creation, fall, Passover, cross, and the Lamb on the throne.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The fall and the first promise—the Seed of the woman shall bruise the serpent's head.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"And I will put enmity between you and the woman, and between your seed and her Seed; He shall bruise your head, and you shall bruise His heel." (Genesis 3:15)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read Genesis 3](https://www.bible.com/bible/114/GEN.3.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Passover redemption—the blood on the doorposts, the lamb without blemish, the night of deliverance.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"For I will pass through the land of Egypt on that night, and will strike all the firstborn in the land of Egypt, both man and beast; and against all the gods of Egypt I will execute judgment: I am the LORD." (Exodus 12:12)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Exodus 12](https://www.bible.com/bible/114/EXO.12.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+He was led as a lamb to the slaughter—He bore the sin of many and made intercession for the transgressors.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"He was oppressed and He was afflicted, yet He opened not His mouth; He was led as a lamb to the slaughter, and as a sheep before its shearers is silent, so He opened not His mouth." (Isaiah 53:7)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Isaiah 53](https://www.bible.com/bible/114/ISA.53.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+It is finished—Messiah bows His head and gives up His spirit on the cross.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"So when Jesus had received the sour wine, He said, 'It is finished!' And bowing His head, He gave up His spirit." (John 19:30)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read John 19](https://www.bible.com/bible/114/JHN.19.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Justified freely by His grace through the redemption that is in Messiah Yeshua.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Being justified freely by His grace through the redemption that is in Christ Jesus, whom God set forth as a propitiation by His blood, through faith, to demonstrate His righteousness." (Romans 3:24-25)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Romans 3](https://www.bible.com/bible/114/ROM.3.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Worthy is the Lamb who was slain—to receive power and riches and wisdom and strength and honor and glory and blessing.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Saying with a loud voice: 'Worthy is the Lamb who was slain to receive power and riches and wisdom, and strength and honor and glory and blessing!'" (Revelation 5:12)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read Revelation 5](https://www.bible.com/bible/114/REV.5.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+The Spirit and the bride say, "Come!"—let him who hears say, "Come!" The grace of our Lord Yeshua be with you all.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"And the Spirit and the bride say, 'Come!' And let him who hears say, 'Come!' And let him who thirsts come. Whoever desires, let him take the water of life freely." (Revelation 22:17)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 22](https://www.bible.com/bible/114/REV.22.NKJV)
 
-## Week 51 Placeholder (Dec 27)
+## Spiritual Warfare and Victory in Messiah (Dec 20)
 
-Placeholder readings for this week while the full theme is being finalized.
+The Church stands in divine armor—not by human strength, but by the blood of the Lamb.
 
 ### Day 1
 
-Hold fast to the Lord while this week's theme is being developed.
+The battle is the LORD's—David defeats Goliath in the name of the LORD of hosts.
 
->"Blessed is the man who walks not in the counsel of the ungodly, nor stands in the path of sinners, nor sits in the seat of the scornful." (Psalm 1:1)
+>"Then David said to the Philistine, 'You come to me with a sword, with a spear, and with a javelin. But I come to you in the name of the LORD of hosts, the God of the armies of Israel, whom you have defied.'" (1 Samuel 17:45)
 
- [Read Psalm 1](https://www.bible.com/bible/114/PSA.1.NKJV)
+ [Read 1 Samuel 17](https://www.bible.com/bible/114/1SA.17.NKJV)
 
 ### Day 2
 
-Hold fast to the Lord while this week's theme is being developed.
+Prayer and fasting open the way—Michael the archangel comes to help against the prince of Persia.
 
->"Let the words of my mouth and the meditation of my heart be acceptable in Your sight, O LORD, my strength and my Redeemer." (Psalm 19:14)
+>"Then he said to me, 'Do not fear, Daniel, for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard; and I have come because of your words.'" (Daniel 10:12)
 
- [Read Psalm 19](https://www.bible.com/bible/114/PSA.19.NKJV)
+ [Read Daniel 10](https://www.bible.com/bible/114/DAN.10.NKJV)
 
 ### Day 3
 
-Hold fast to the Lord while this week's theme is being developed.
+Yeshua overcomes the tempter—it is written: you shall worship the LORD your God, and Him only you shall serve.
 
->"The LORD is my shepherd; I shall not want." (Psalm 23:1)
+>"Then Jesus said to him, 'Away with you, Satan! For it is written, "You shall worship the LORD your God, and Him only you shall serve."'" (Matthew 4:10)
 
- [Read Psalm 23](https://www.bible.com/bible/114/PSA.23.NKJV)
+ [Read Matthew 4](https://www.bible.com/bible/114/MAT.4.NKJV)
 
 ### Day 4
 
-Hold fast to the Lord while this week's theme is being developed.
+The weapons of our warfare are not carnal but mighty through God for pulling down strongholds.
 
->"The LORD is my light and my salvation; whom shall I fear?" (Psalm 27:1)
+>"For the weapons of our warfare are not carnal but mighty in God for pulling down strongholds, casting down arguments and every high thing that exalts itself against the knowledge of God." (2 Corinthians 10:4-5)
 
- [Read Psalm 27](https://www.bible.com/bible/114/PSA.27.NKJV)
+ [Read 2 Corinthians 10](https://www.bible.com/bible/114/2CO.10.NKJV)
 
 ### Day 5
 
-Hold fast to the Lord while this week's theme is being developed.
+Put on the whole armor of God—that you may be able to stand against the wiles of the devil.
 
->"Be still, and know that I am God." (Psalm 46:10)
+>"Finally, my brethren, be strong in the Lord and in the power of His might. Put on the whole armor of God, that you may be able to stand against the wiles of the devil." (Ephesians 6:10-11)
 
- [Read Psalm 46](https://www.bible.com/bible/114/PSA.46.NKJV)
+ [Read Ephesians 6](https://www.bible.com/bible/114/EPH.6.NKJV)
 
 ### Day 6
 
-Hold fast to the Lord while this week's theme is being developed.
+Resist the devil and he will flee from you—draw near to God and He will draw near to you.
 
->"He who dwells in the secret place of the Most High shall abide under the shadow of the Almighty." (Psalm 91:1)
+>"Therefore submit to God. Resist the devil and he will flee from you. Draw near to God and He will draw near to you." (James 4:7-8)
 
- [Read Psalm 91](https://www.bible.com/bible/114/PSA.91.NKJV)
+ [Read James 4](https://www.bible.com/bible/114/JAS.4.NKJV)
 
 ### Day 7
 
-Hold fast to the Lord while this week's theme is being developed.
+They overcame by the blood of the Lamb and by the word of their testimony—they did not love their lives to the death.
 
->"I will lift up my eyes to the hills - from whence comes my help? My help comes from the LORD, who made heaven and earth." (Psalm 121:1-2)
+>"And they overcame him by the blood of the Lamb and by the word of their testimony, and they did not love their lives to the death." (Revelation 12:11)
 
- [Read Psalm 121](https://www.bible.com/bible/114/PSA.121.NKJV)
+ [Read Revelation 12](https://www.bible.com/bible/114/REV.12.NKJV)
+
+## New Beginnings: Hope for the Year Ahead (Dec 27)
+
+Close the cycle by looking forward: new creation, renewed covenant, and the God who makes all things new.
+
+### Day 1
+
+His mercies are new every morning—great is Your faithfulness.
+
+>"Through the LORD's mercies we are not consumed, because His compassions fail not. They are new every morning; great is Your faithfulness." (Lamentations 3:22-23)
+
+ [Read Lamentations 3](https://www.bible.com/bible/114/LAM.3.NKJV)
+
+### Day 2
+
+Behold, I am doing a new thing—now it shall spring forth; shall you not know it?
+
+>"Behold, I will do a new thing, now it shall spring forth; shall you not know it? I will even make a road in the wilderness and rivers in the desert." (Isaiah 43:19)
+
+ [Read Isaiah 43](https://www.bible.com/bible/114/ISA.43.NKJV)
+
+### Day 3
+
+River of life flows from the temple—everything shall live wherever the river goes.
+
+>"And it shall be that every living thing that moves, wherever the rivers go, will live. There will be a very great multitude of fish, because these waters go there; for they will be healed, and everything will live wherever the river goes." (Ezekiel 47:9)
+
+ [Read Ezekiel 47](https://www.bible.com/bible/114/EZK.47.NKJV)
+
+### Day 4
+
+Present yourselves as a living sacrifice—renewed in mind to prove what is good and acceptable and perfect.
+
+>"I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, which is your reasonable service. And do not be conformed to this world, but be transformed by the renewing of your mind." (Romans 12:1-2)
+
+ [Read Romans 12](https://www.bible.com/bible/114/ROM.12.NKJV)
+
+### Day 5
+
+If anyone is in Messiah, he is a new creation—old things have passed away; behold, all things have become new.
+
+>"Therefore, if anyone is in Christ, he is a new creation; old things have passed away; behold, all things have become new." (2 Corinthians 5:17)
+
+ [Read 2 Corinthians 5](https://www.bible.com/bible/114/2CO.5.NKJV)
+
+### Day 6
+
+Behold, I make all things new—write, for these words are true and faithful.
+
+>"Then He who sat on the throne said, 'Behold, I make all things new.' And He said to me, 'Write, for these words are true and faithful.'" (Revelation 21:5)
+
+ [Read Revelation 21](https://www.bible.com/bible/114/REV.21.NKJV)
+
+### Day 7
+
+Hear, O Israel—begin again with total devotion to the LORD your God.
+
+>"Hear, O Israel: The LORD our God, the LORD is one! You shall love the LORD your God with all your heart, with all your soul, and with all your strength." (Deuteronomy 6:4-5)
+
+ [Read Deuteronomy 6](https://www.bible.com/bible/114/DEU.6.NKJV)

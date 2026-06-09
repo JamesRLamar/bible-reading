@@ -24,6 +24,9 @@ module.exports = {
 
     // Fall Feasts - week leading up to Feast of Trumpets 2026 (Sept 11-12 at sunset)
     '2026-09-06': '39-trumpets-and-the-fall-feasts',
+
+    // Hanukkah 2026 (Dec 4-12 at sunset) — week containing Dec 6
+    '2026-12-06': '48-shine-where-you-are',
   },
   
   // Optional: manually set the full week order (overrides anchors if provided)
