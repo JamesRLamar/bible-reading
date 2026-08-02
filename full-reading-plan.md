@@ -1442,63 +1442,63 @@ Endure hardship as a good soldier of Yeshua—no one engaged in warfare entangle
 
 ## Treasure and Generosity: Where Your Heart Is (Jun 21)
 
-Scripture teaches that where we store treasure reveals where our heart truly belongs—and generous living flows from devotion to God.
+Scripture shows that where we keep our treasure reveals where our heart truly belongs. Living generously comes from being devoted to God.
 
 ### Day 1
 
-The biblical tithes—for Levites, feasts, and care for the poor.
+We are not required to give exactly 10%, but the way we give is still important. In the Bible, tithes supported the Levites, feasts, and helped the poor.
 
->"You shall truly tithe all the increase of your grain that the field produces year by year." (Deuteronomy 14:22)
+> “You shall truly tithe all the increase of your grain that the field produces year by year.” (Deuteronomy 14:22)
 
- [Read Deuteronomy 14](https://www.bible.com/bible/114/DEU.14.NKJV)
+[Read Deuteronomy 14](https://www.bible.com/bible/114/DEU.14.NKJV)
 
 ### Day 2
 
-The generous soul will be made rich, and he who waters will also be watered.
+A generous person will be blessed, and those who help others will also receive help.
 
->"There is one who scatters, yet increases more; and there is one who withholds more than is right, but it leads to poverty. The generous soul will be made rich, and he who waters will also be watered himself." (Proverbs 11:24-25)
+> “There is one who scatters, yet increases more; and there is one who withholds more than is right, but it leads to poverty. The generous soul will be made rich, and he who waters will also be watered himself.” (Proverbs 11:24-25)
 
- [Read Proverbs 11](https://www.bible.com/bible/114/PRO.11.NKJV)
+[Read Proverbs 11](https://www.bible.com/bible/114/PRO.11.NKJV)
 
 ### Day 3
 
-Return to the Lord with tithes and offerings—in their proper covenant context.
+Do not store up treasures on earth. Your heart will always follow what you value most.
 
->"Will a man rob God? Yet you have robbed Me! But you say, 'In what way have we robbed You?' In tithes and offerings." (Malachi 3:8)
+> “Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal; but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also.” (Matthew 6:19-21)
 
- [Read Malachi 3](https://www.bible.com/bible/114/MAL.3.NKJV)
+[Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
 
 ### Day 4
 
-Do not lay up treasures on earth—where your treasure is, there your heart will be.
+Sell what you have and give to those in need. This way, you will have lasting treasure in heaven.
 
->"Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal; but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also." (Matthew 6:19-21)
+> “Provide yourselves money bags which do not grow old, a treasure in the heavens that does not fail, where no thief approaches nor moth destroys. For where your treasure is, there your heart will be also.” (Luke 12:33-34)
 
- [Read Matthew 6](https://www.bible.com/bible/114/MAT.6.NKJV)
+[Read Luke 12](https://www.bible.com/bible/114/LUK.12.NKJV)
 
 ### Day 5
 
-Sell what you have and give alms—provide purses that do not fail in heaven.
+The first believers shared everything they had, so no one among them was in need.
 
->"Provide yourselves money bags which do not grow old, a treasure in the heavens that does not fail, where no thief approaches nor moth destroys. For where your treasure is, there your heart will be also." (Luke 12:33-34)
+> “Nor was there anyone among them who lacked; for all who were possessors of lands or houses sold them, and brought the proceeds of the things that were sold.” (Acts 4:34)
 
- [Read Luke 12](https://www.bible.com/bible/114/LUK.12.NKJV)
+[Read Acts 4](https://www.bible.com/bible/114/ACT.4.NKJV)
 
 ### Day 6
 
-The early believers shared all things—there was no poor among them.
+Giving is a gift. Jesus became poor for our sake, so that we could become rich through Him.
 
->"Nor was there anyone among them who lacked; for all who were possessors of lands or houses sold them, and brought the proceeds of the things that were sold." (Acts 4:34)
+> “For you know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you through His poverty might become rich.” (2 Corinthians 8:9)
 
- [Read Acts 4](https://www.bible.com/bible/114/ACT.4.NKJV)
+[Read 2 Corinthians 8](https://www.bible.com/bible/114/2CO.8.NKJV)
 
 ### Day 7
 
-The grace of giving—Christ became poor so that we might become rich.
+God loves a cheerful giver.
 
->"For you know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you through His poverty might become rich." (2 Corinthians 8:9)
+> “So let each one give as he purposes in his heart, not grudgingly or of necessity; for God loves a cheerful giver.” (2 Corinthians 9:7)  
 
- [Read 2 Corinthians 8](https://www.bible.com/bible/114/2CO.8.NKJV)
+[Read 2 Corinthians 9](https://www.bible.com/bible/114/2CO.9.NKJV)
 
 ## Forgiveness and Reconciliation (Jun 28)
 
